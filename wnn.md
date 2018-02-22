@@ -51,7 +51,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="wnn/img/2016-5-30-minghui-mudanjiang-gaoyixi-1-ss.png" width=880></td>
+<td align="center"><IMG SRC="wnn/img/2016-5-30-minghui-mudanjiang-gaoyixi-1-ss.png" width=300></td>
 </tr>
 <tr>
 <td align="center">姜自香的儿子、法轮功学员高一喜。（明慧网）</td>
