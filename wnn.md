@@ -1,4 +1,4 @@
-<a href="https://git.io/ffq"><IMG SRC="wnn/img/fq.jpg" width=880></a></p>
+<a href="https://git.io/ffq"><IMG SRC="wnn/img/b16.jpg" width=880></a></p>
 <hr>
 
 <h1 align="center"><b>“三退”才能上“方舟”</b></h1>
