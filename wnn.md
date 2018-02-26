@@ -1,5 +1,8 @@
-<a href="https://git.io/ffq"><IMG SRC="wnn/img/b16.jpg" width=880></a></p>
+<a href="https://git.io/ffq"><IMG SRC="wnn/img/A01_.jpg" width=880></a></p>
 <hr>
+<h1 align="center"><b>一次不寻常的车祸结案</b></h1>
+
+<IMG SRC="wnn/img/_minghui.org.jpg" width=880></p>
 
 <h1 align="center"><b>“三退”才能上“方舟”</b></h1>
 
