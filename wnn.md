@@ -1,5 +1,5 @@
 <a href="https://git.io/ffq"><IMG SRC="wnn/img/A02.jpg" width=880></a></p>
-
+<hr>
 
 
 <h1 align="center"><b>石铭：请关注持续恶化的法轮功人权！
@@ -81,7 +81,7 @@
 
 人们因着不同机缘而来到了国父纪念馆的真相景点，虽然只是短暂的停留，可能因此有了生命永恒的美好；期待他们都能记住：“法轮大法好！”
 <tr>
-
+<tr>
 <h1 align="center"><b>新疆流亡医生揭活摘器官：中共如恶魔</b></h1>
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -123,7 +123,7 @@
 
 <tr>
 
-
+<hr>
 <h1 align="center"><b>一次不寻常的车祸结案</b></h1>
 
 <IMG SRC="wnn/img/_minghui.org.jpg" width=880></p>
