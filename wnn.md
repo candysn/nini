@@ -1,4 +1,4 @@
-<a href="https://git.io/ffq"><IMG SRC="wnn/img/A02.jpg" width=880></a></p>
+<a href="https://git.io/ffq"><IMG SRC="wnn/img/ok.jpg" width=880></a></p>
 <hr>
 
 <h1 align="center"><b>一位中国大陆女作家的真实体验</b></h1>
