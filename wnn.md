@@ -1,5 +1,18 @@
-<a href="https://git.io/ffq"><IMG SRC="wnn/img/A01_.jpg" width=880></a></p>
+<a href="https://git.io/ffq"><IMG SRC="wnn/img/A02.jpg" width=880></a></p>
 <hr>
+
+<h1 align="center"><b>新疆流亡医生揭活摘器官：中共如恶魔</b></h1>
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="wnn/img/214261442a678cf15445826108eaecfb-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">不想成为中共刽子手，安华托帝放弃医师身份，选择流亡海外成为一名公车司机，并致力传达真实的中国人权现况。2日，安华受邀在高雄台权会演讲。 （李怡欣/大纪元）</td>
+</tr>
+</tbody>
+</table>
+
 <h1 align="center"><b>一次不寻常的车祸结案</b></h1>
 
 <IMG SRC="wnn/img/_minghui.org.jpg" width=880></p>
