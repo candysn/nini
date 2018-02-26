@@ -1,5 +1,5 @@
 <a href="https://git.io/ffq"><IMG SRC="wnn/img/A02.jpg" width=880></a></p>
-<hr>
+
 
 
 <h1 align="center"><b>石铭：请关注持续恶化的法轮功人权！
