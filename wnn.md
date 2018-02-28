@@ -1,6 +1,96 @@
 <a href="https://git.io/ffq"><IMG SRC="wnn/img/ok.jpg" width=880></a></p>
 <hr>
 
+<h1 align="center"><b>送你一朵纸莲花 每一片花瓣都有故事</b></h1>
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="wnn/img/Aki-906-a-1-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">“和平的花瓣”活动宣导理解和宽容，旨在促进世界和平。（大纪元合成）</td>
+</tr>
+</tbody>
+</table>
+【大纪元2018年02月26日讯】（大纪元记者田云综合报导）九张彩纸，一条丝线，折成一朵精美的花，送出一片真心祝福。朋友，您见过这种纸莲花吗？14年来，成千上万朵五彩莲花，盛开在世界各地。您可知道，在缤纷的花瓣里，折叠了怎样的故事？<p>
+
+2003年10月2日，在澳大利亚墨尔本发起了一项国际性活动，叫做“和平的花瓣”。它的创意灵感来自一个名叫“法度”的小女孩，她和母亲戴志珍（Jane Dai）为了和平而奔走，足迹踏遍了40多个国家。
+
+戴志珍是旅澳华人，1997年回中国时读到了《转法轮》，开始修炼法轮大法。1999年7月，中共发动了对法轮功的镇压，一夜之间，这种功法被禁止，许多修炼者被抓捕。戴志珍的丈夫陈承勇也是法轮功学员。他认为政府一定是搞错了，他要说句公道话。他写了一封简短的信：“法轮功非常好，法轮功使我和我的家人受益无穷。”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="wnn/img/2004-6-2-lotus-2-600x450.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">莲花出淤泥而不染，象征高洁的品质。(Jane Dai/Petals of Peace)</td>
+</tr>
+</tbody>
+</table>
+陈承勇去北京上访，却被抓捕，释放回家后又遭到绑架和酷刑折磨。2001年7月，戴志珍得到了丈夫去世的消息，当时，他们的女儿法度才一岁多。戴志珍说，听到噩耗后，“我心都碎了，整天把自己关在房间里，谁也不想见。第二天早上，我的头发全白了”。
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="wnn/img/NTD_Fadu_Falun-Dafa-2.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">“和平的花瓣”的创意来源于法度的故事。(Jane Dai/Petals of Peace)</td>
+</tr>
+</tbody>
+</table>
+在中国大陆，还有许多儿童和法度遭遇了同样的悲剧——他们的父亲或母亲因为坚持信仰而被关押、流离失所，甚至被迫害致死。这些孩子承受了与家人分离的痛苦，被剥夺了快乐和幸福。
+
+多年来，戴志珍带着法度一道，向各界讲述自己的亲身经历，呼吁人们关注对法轮功的迫害，帮助无辜的法轮功学员。她们教小孩子制作纸莲花，传递“真善忍”的美好，倡导理解、宽容，促进世界和平。这就是“和平花瓣”的宗旨。
+
+戴志珍曾对媒体表示：“莲花，它象征着和平。唯有真的想要做一个好人的时候，你才会有内在的宁静和平。”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="wnn/img/FaduStoryP8_r1_c1.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">戴志珍和女儿法度在一起。(Jane Dai/Petals of Peace)</td>
+</tr>
+</tbody>
+</table>
+“和平的花瓣”首先在澳洲的学校和社区的年轻人中推广开来，很快在世界各地获得热烈响应。在制作莲花时，又增添了新的创意：人们把一枚写有“法轮大法好”、“真、善、忍”的书签缀在花朵下面。
+
+制作纸莲花需要细致的手工：裁纸、折叠、系线、伸展花瓣、连接书签或卡片等。美国麻州的一位志愿者说：“我们从来不觉得做莲花很难或是费时间。这是个愉快的过程。这些美丽的花朵能触动人们心底的善念，让他们感受并支持‘真、善、忍’。
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="wnn/img/falun-dafa-na-festivale-zdravfest-2017-foto-5-600x413.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">孩子们都喜欢纸莲花。(Jane Dai/Petals of Peace)</td>
+</tr>
+</tbody>
+</table>
+在印度庞地切里市，美术老师塔尼娅·维诺格拉多沃是折莲花的能手。她从一位德国女士那里学到了这种技巧。每一次，当她分发莲花时，接受礼物的人都发出惊叹，向她致谢。有些人把纸莲花挂在车里或手袋上，有些人则放在家中，时时欣赏。
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="wnn/img/A01-450x635.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">孩子们都喜欢纸莲花。(Veeresh M. Honnihal/NTD.tv)</td>
+</tr>
+</tbody>
+</table>
+在中华文化中，莲花出淤泥而不染，象征高洁的品质。法轮功学员制作的纸莲花，包含了更深的内涵。每一片闪亮的花瓣，展示出坚定的信念、真诚的诉说和美好的期望。朵朵“希望之莲”散发着特殊的光采，如清风掠过，拂动心灵。
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="wnn/img/NTD_Petals-of-Peace-450x600.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">五彩莲花创意缤纷。(Petals of Peace/Facebook)</td>
+</tr>
+</tbody>
+</table>
+<IMG SRC="wnn/img/Lotus-5-450x65.png.jpg"width=880></p>
+
+<hr>
 <h1 align="center"><b>千百度：修炼大法后她自觉成了最幸福的人</b></h1>
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
