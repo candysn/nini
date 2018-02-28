@@ -88,7 +88,8 @@
 </tr>
 </tbody>
 </table>
-<IMG SRC="wnn/img/Lotus-5-450x65.png.jpg"width=880></p>
+<IMG SRC="wnn/img/Lotus-5-450x65.jpg"width=880></p>
+
 
 <hr>
 <h1 align="center"><b>千百度：修炼大法后她自觉成了最幸福的人</b></h1>
