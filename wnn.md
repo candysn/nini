@@ -1,4 +1,4 @@
-<a href="https://git.io/ffq"><IMG SRC="wnn/img/ok.jpg" width=880></a></p>
+<a href="https://git.io/ffq"><IMG SRC="wnn/img/111.jpg" width=880></a></p>
 <hr>
 
 <h1 align="center"><b>濒临死亡的妹妹从“鬼门关”走回来了</b></h1>
