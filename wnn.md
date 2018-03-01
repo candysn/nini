@@ -1,5 +1,18 @@
 <a href="https://git.io/ffq"><IMG SRC="wnn/img/ok.jpg" width=880></a></p>
 <hr>
+
+<h1 align="center"><b>全球移植医生都知道中共活摘法轮功学员器官</b></h1>
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="wnn/img/1409130631211459-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">中共活体摘取法轮功学员器官的罪行，近日在土耳其国际移植大会上被曝光。(Christopher Furlong/Getty Images）</td>
+</tr>
+</tbody>
+</table>
+<hr>
 <h1 align="center"><b>认清中共　“三退”保平安</b></h1>
 <IMG SRC="wnn/img/2014-1-5-minghui-jianzhi-santui.jpg"width=880></p>
 【明慧网二零一六年七月三十日】西来“幽灵”共产党（其实是一个魔教、邪灵）在中国篡夺政权以后，为了让人们听它的话、跟它走，就儿童时开始，它就迫使和诱惑人们加入它的少先队、继而加入它的共青团和共产党组织。它胡说什么只有加入共产党的组织，才说明自己“政治觉悟高”、“要求进步”，再加上只有加入共产党的这些组织，才能做官当干部、才能找到好的工作，许多人因此加入了共产党的这些组织。</p>
