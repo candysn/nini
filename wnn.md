@@ -46,15 +46,13 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="wnn/img/2006-3-4-msj-kuxin-65-ss.jpg" width=880></td>
+<td align="center"><IMG SRC="wnn/img/2006-3-4-msj-kuxin-65-ss.jpg" width=200></td>
 </tr>
 <tr>
 <td align="center">中共酷刑迫害示意图：铁椅子（明慧网）</td>
 </tr>
 </tbody>
 </table>
-
-
 遭受了六天五夜的连续上刑，刘忠杰全身失去知觉，奄奄一息。警察怕她死在铁椅子上，才停止用刑。
 
 2002年1月份，劳教所欲对已接近迫害期满的刘忠杰非法加期，刘忠杰绝食、绝水17天进行抗议，恶警把她绑在床上，这边狱医手拿胶皮管子，往刘忠杰鼻子里插，鼻子被插破出血，撕心裂肺的疼痛使她几欲昏厥。那边，大队长王岩摁著刘忠杰的手，哼著小曲，得意洋洋！
