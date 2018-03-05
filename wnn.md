@@ -1,6 +1,6 @@
 <a href="https://git.io/ffq"><IMG SRC="wnn/img/111.jpg" width=880></a></p>
 <hr>
-<IMG SRC="wnn/img/p8680081a477042707-ss.jpg"width=880></p>
+<IMG SRC="wnn/img/b17.jpg"width=880></p>
 
 <hr>
 <h1 align="center"><b>古稀之人双腿断成三截不治而愈</b></h1>
