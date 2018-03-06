@@ -1,6 +1,6 @@
 <a href="https://git.io/ffq"><IMG SRC="wnn/img/111.jpg" width=880></a></p>
 <hr>
-<IMG SRC="wnn/img/b17.jpg"width=880></p>
+<IMG SRC="wnn/img/b17-1.jpg"width=880></p>
 <hr>
 <h1 align="center"><b>从“古惑仔”到修炼者 ——一位年轻人的修炼故事</b></h1>
 <table border="0" cellspacing="3" cellpadding="3">
