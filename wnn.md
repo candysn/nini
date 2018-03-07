@@ -2,7 +2,7 @@
 <hr>
 <IMG SRC="wnn/img/b17-1.jpg"width=880></p>
 
-<a href="https://github.com/candysn/nini/blob/master/wnn/epub/a111.epub?raw=true">20180-301-0310文章分享epub電子書</a>
+<a href="https://github.com/candysn/nini/blob/master/epub.md">epub電子書</a>
 <hr>
 <h1 align="center"><b>从“古惑仔”到修炼者 ——一位年轻人的修炼故事</b></h1>
 <table border="0" cellspacing="3" cellpadding="3">
