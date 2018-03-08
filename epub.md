@@ -1,10 +1,12 @@
-<a href="https://github.com/candysn/nini/blob/master/wnn/epub/a111.epub?raw=true">20180-301-0310文章分享epub電子書</a>
-
 <table  cellspacing="1" cellpadding="1">
 <tr  width="880">
 	<td  width="280">书名</td>
 	<td  width="600">說明</td>
-</tr>
+</tr>	
+<tr>
+	<td>小之每日真相_0301-0310</td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/a111.epub?raw=true">圖文b</a></td>
+</tr>	
 <tr>
 	<td>【突破封锁看世界】翻墙软件手册</td>
 	<td><a href="https://git.io/fang">圖文、視頻epub</a></td>
