@@ -4,8 +4,8 @@
 	<td  width="600">說明</td>
 </tr>	
 <tr>
-	<td>小之每日真相_0301-0310</td>
-	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/a111.epub?raw=true">圖文b</a></td>
+	<td>小之每日真相_0301-0331</td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/a111.epub?raw=true">圖文</a></td>
 </tr>	
 <tr>
 	<td>【突破封锁看世界】翻墙软件手册</td>
