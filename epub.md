@@ -3,10 +3,7 @@
 	<td  width="280">书名</td>
 	<td  width="600">說明</td>
 </tr>
-<tr>
-	<td>小之每日真相_03</td>
-	<td><a href="XXX网址">圖文、XXX</a></td>
-</tr>	
+
 <tr>
 	<td>小之每日真相_0301-0331</td>
 	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/a111.epub?raw=true">圖文</a></td>
