@@ -8,9 +8,15 @@
 	<td>小之每日真相_0301-0331</td>
 	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/a111.epub?raw=true">圖文</a></td>
 </tr>	
+
+<tr>
+        <td>16年前的長春3.05插播壯舉 mp4 epub電子書</td>
+        <td><a href="https://git.io/9ping">圖文epub</a></td>
+</tr>
+
 <tr>
 	<td>【突破封锁看世界】翻墙软件手册</td>
-	<td><a href="https://git.io/fang">圖文、視頻epub</a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/305.epub?raw=true">圖文、epub</a></td>
 </tr>
 <tr>
 	<td>【九评共产党】</td>
