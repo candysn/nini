@@ -10,7 +10,7 @@
 </tr>	
 
 <tr>
-        <td>16年前的長春3.05插播壯舉 mp4 epub電子書</td>
+        <td>16年前的長春3.05插播壯舉 </td>
         <td><a href="https://git.io/9ping">圖文epub</a></td>
 </tr>
 
