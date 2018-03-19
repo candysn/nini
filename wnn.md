@@ -8,7 +8,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="wnn/img/-2684.jpg" width=640></td>
+<td align="center"><IMG SRC="wnn/img/-2684.jpg" ></td>
 </tr>
 <tr>
 <td align="center">人生之路千万条 正法大道是真途</td>
