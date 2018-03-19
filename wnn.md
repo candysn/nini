@@ -1,6 +1,6 @@
 <a href="https://git.io/ffq"><IMG SRC="wnn/img/112.jpg" width=880></a></p>
 <hr>
-<IMG SRC="wnn/img/b17-4.jpg"width=880></p>
+<IMG SRC="wnn/img/b17-5.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">epub電子書</a></h1>
 <hr>
 
