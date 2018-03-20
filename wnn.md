@@ -113,6 +113,19 @@
 
 <hr>
 <h1 align="center"><b>一本“天书”让我体验到的神奇经历</b></h1>
+
+<div align="center">
+<IMG SRC="wnn/img/-2654.jpg" width=700>
+</div>
+
+<div align="center">
+被很多人誉为“天书”的《转法轮》已经翻译成40种文字在世界流传
+</div>
+
+<p>
+
+
+
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
