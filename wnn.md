@@ -77,6 +77,19 @@
 
 <hr>
 <h1 align="center"><b></b>法轮大法是万年难遇的高德大法</h1>
+
+<div align="center">
+<IMG SRC="wnn/img/圖片xxx.jpg" width=700>
+</div>-2659-600x400
+
+<div align="center">
+亿万法轮功学员无限感恩李洪志师父
+</div>
+
+
+
+
+
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
