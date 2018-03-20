@@ -79,7 +79,7 @@
 <h1 align="center"><b></b>法轮大法是万年难遇的高德大法</h1>
 
 <div align="center">
-<IMG SRC="wnn/img/圖片xxx.jpg" width=700>
+<IMG SRC="wnn/img/-2659-600x400.jpg" width=700>
 </div>-2659-600x400
 
 <div align="center">
