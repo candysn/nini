@@ -9,7 +9,6 @@
 <div align="center">
 <IMG SRC="wnn/img/-2684.jpg" width=640>
 </div>
-
 <div align="center">
 人生之路千万条 正法大道是真途
 </div>
