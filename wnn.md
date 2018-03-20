@@ -13,13 +13,6 @@
 <div align="center">
 人生之路千万条 正法大道是真途
 </div>
-
-
-<div align="center">
-<table border="0" cellspacing="3" cellpadding="3" align="center">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/-2684.jpg" width=640></td>
 </tr>
 <tr>
 <td align="center">人生之路千万条 正法大道是真途</td>
@@ -27,9 +20,6 @@
 </tbody>
 </table>
  </div>
-
-
-
 
  <b>【希望之声2018年3月13日】（本台记者慧光综合报导）</b> 我出生在中国大陆的中原——河南省，母亲生我之前已经疯了多年，前面生了六胎都没有活下来，我是第七胎。在我七岁时，母亲就去世了，所以我能活下来也算是一个奇迹，<p>
 
