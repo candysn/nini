@@ -9,9 +9,9 @@
 <tbody>
 <div align="center">
 <img src="wnn/img/-2684.jpg"">
-
-</div>
 <td align="center">人生之路千万条 正法大道是真途</td>
+</div>
+
 </tr>
 </tbody>
 </table>
