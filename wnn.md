@@ -618,16 +618,16 @@
 我写出这些真实的故事，旨在唤醒可贵的中国人，特别是那些到现在还不明真相的人，不要再被江泽民邪恶集团散布的弥天大谎迷惑，赶快了解真相，退出曾经加入的党团队组织，为自己和家人选择美好未来！
 <hr>
 <h1 align="center"><b>甜蜜生活有配方 美国印裔糕点大厨的成功心得</b></h1>
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/04__rakesh-600x400.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">拉凯什·纳亚克 （Rakesh Nayak）是“共同的纽带”餐厅的西饼部厨师长。 (Courtesy of Rakesh Nayak)</td>
-</tr>
-</tbody>
-</table>
+<div align="center">
+<IMG SRC="wnn/img/04__rakesh-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+拉凯什·纳亚克 （Rakesh Nayak）是“共同的纽带”餐厅的西饼部厨师长。
+</div>
+<p>
+
+
 【大纪元2018年03月01日讯】（大纪元特约记者Daksha Devnani采访报导，田云编译）在美国德州休斯顿，有一个出名的咖啡糕点屋：“共同的纽带”（Common Bond Cafe & Bakery）。这里从早到晚生意兴隆，很多人慕名而来，专为品尝特色糕点——面包、饼干、甜点，花样繁多，创意独特，口感一流。据说，最令人难忘的是巧克力粒核桃饼干、杏仁牛角面包、开心果牛角面包……食客赞：“松软！香脆！酥皮层层叠叠，太好吃了！”<p>
 
 拉凯什·纳亚克（Rakesh Nayak）是餐厅糕点部的厨师长。他在幕后，每天像变戏法儿一样，端出一盘盘精美的糕点。他专注又自在，总能游刃有余。
@@ -637,89 +637,91 @@
 “我从小就喜欢烹调，总是和妈妈一起做饭做菜。我的祖父在南部城市乌度比开了一家餐馆。妈妈说，我遗传了祖父的烹饪基因。”
 
 拉凯什的家庭比较保守，孩子们不能自由地编织未来。初级学院毕业后，拉凯什本想攻读酒店管理专业，可是家里的经济条件不允许，他只好放弃大学梦，转去学习烹饪和糕点制作。
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/img_1166-1-450x521.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">拉凯什在厨房工作。(Courtesy of Rakesh Nayak)
-</td>
-</tr>
-</tbody>
-</table>
+
+<div align="center">
+<IMG SRC="wnn/img/img_1166-1-450x521.jpg" width=640>
+</div>
+
+<div align="center">
+拉凯什在厨房工作。(Courtesy of Rakesh Nayak)
+</div>
+<p>
+
 一年的课程结束后，拉凯什在孟买的希尔顿酒店当了半年的服务员，在这期间，他发现，制作糕点才是他的兴趣所在。几经转折，他登上了皇家加勒比游轮，开始在海上工作。
 
 两年的航行充满了新奇。在这艘船上，他遇到了今生的伴侣：来自中国的苏茜。后来，苏茜去美国工作，拉凯什回到印度，两人暂时分离。
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/1457584_10202473635743705_1584458929_n-600x450.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">拉凯什与妻子苏茜。(Rakesh Nayak/Facebook)</td>
-</tr>
-</tbody>
-</table>
+
+
+<div align="center">
+<IMG SRC="wnn/img/1457584_10202473635743705_1584458929_n-600x450.jpg" width=640>
+</div>
+
+<div align="center">
+拉凯什与妻子苏茜。(Rakesh Nayak/Facebook)
+</div>
+<p>
 
 2011年8月中旬，拉凯什收到了苏茜寄来的礼物：一本叫做“转法轮”的书。苏茜告诉他，这是法轮大法的主要著作。法轮大法源于中国，是古老的东方修炼功法。
 
 拉凯什说：“这本书彻头彻尾地改变了我的生活，带来积极的变化。我第一次读书时，就感觉里面的话贴近我的心。我找到了在孟买的法轮大法学员，和他们一起炼功。我一开始炼功，就感觉太棒了，我的身体和头脑都充满了能量，一整天都非常高兴。”
 
 修炼大法还有更多益处。拉凯什说，在日常生活中，他遵照大法的“真、善、忍”法理去待人处事，“我的脾气好多了，在厨房工作时更平和了。我的朋友和家人注意到，我变了。我妈妈说，这种功法肯定很神奇”。亲眼目睹了他的转变，他的妈妈和妹妹也一起修炼大法。
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/img_1241-600x695.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">拉凯什在炼习法轮大法第五套功法。 (Courtesy of Rakesh Nayak)</td>
-</tr>
-</tbody>
-</table>
+
+<div align="center">
+<IMG SRC="wnn/img/img_1241-600x695.jpg" width=640>
+</div>
+
+<div align="center">
+拉凯什在炼习法轮大法第五套功法。 (Courtesy of Rakesh Nayak)
+</div>
+<p>
 
 当拉凯什听说，中共从1999年7月起镇压法轮功，很多大陆的学员被迫害致死，他惊呆了。“我不能相信，这样可怕的事情发生在21世纪。我得知，我的岳母（苏茜的母亲）也曾受到迫害。我立刻想到，我们要把这事告诉别人，让大家都来关注。”
 
 后来，拉凯什到达纽约，和苏茜团聚。他马上开始向周围的人讲述法轮功受迫害的情况。“现在，我经常去中领馆前发传单，让人们了解在中国发生的事件。过往行人都很认真地听我讲，他们也都很难想像，如此野蛮的暴行还在继续。”
 
 西饼房的工作相当紧张，拉凯什如何缓解高压？他说，“保持宽容和耐心很重要。作为糕点部的负责人，我会尽力照顾团队成员的不同需求，多考虑别人。现在我可以长时间地连续工作而不觉得疲劳，这多亏了神奇的五套功法。”
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/ece5421e2adce92fa34e62e85b2b3435-450x461.png" width=880></td>
-</tr>
-<tr>
-<td align="center">拉凯什·纳亚克烘烤的薄荷巧克力牛角面包。(rakesh_nyk/Instagram)
-</td>
-</tr>
-</tbody>
-</table>
+
+<div align="center">
+<IMG SRC="wnn/img/ece5421e2adce92fa34e62e85b2b3435-450x461.jpg" width=640>
+</div>
+
+<div align="center">
+拉凯什·纳亚克烘烤的薄荷巧克力牛角面包。(rakesh_nyk/Instagram)
+</div>
+<p>
 
 拉凯什和苏莤有一个三岁的女儿，他不娇纵他的“小天使”，而是让她从小就体验“真、善、忍”，做好孩子。他愉快地表示，“修炼法轮大法，我的家庭生活更加谐和，夫妻关系更加稳固。”
 
 这就是印度大厨的故事。他倾注真心，打造出甜蜜的杰作，收获了成功。白色餐盘中的精致和完美，源于心灵的祥和与宁静。
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/img_1167-450x581.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">烘焙师拉凯什。 (Courtesy of Rakesh Nayak)</td>
-</tr>
-</tbody>
-</table>
 
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/10730819_10206754241556175_199745315853355209_n-450x818.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">拉凯什有一个可爱的女儿。 (Courtesy of Rakesh Nayak)</td>
-</tr>
-</tbody>
-</table>
-<IMG SRC="wnn/img/Lotus-5-450x65.jpg"width=880></p>
+<div align="center">
+<IMG SRC="wnn/img/img_1167-450x581.jpg" width=640>
+</div>
+
+<div align="center">
+烘焙师拉凯什。 (Courtesy of Rakesh Nayak)
+</div>
+<p>
+
+<div align="center">
+<IMG SRC="wnn/img/圖片XXX.jpg" width=640>
+</div>
+
+<div align="center">
+文字XXX
+</div>
+<p>
+ 
+<div align="center">
+<IMG SRC="wnn/img/10730819_10206754241556175_199745315853355209_n-450x818.jpg" width=640>
+</div>
+
+<div align="center">
+拉凯什有一个可爱的女儿。 (Courtesy of Rakesh Nayak)
+</div>
+<p>
+
 
 <hr>
 <h1 align="center"><b>濒临死亡的妹妹从“鬼门关”走回来了</b></h1>
