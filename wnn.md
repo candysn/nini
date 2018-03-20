@@ -5,16 +5,23 @@
 <hr>
 
 <h1 align="center"><b>一位出家道士走入正法修炼之后……</b></h1>
+
+<div align="center">
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
-<div align="center">
-<img src="wnn/img/-2684.jpg"">
+<tr>
+<td align="center"><IMG SRC="wnn/img/-2684.jpg" width=640></td>
+</tr>
+<tr>
 <td align="center">人生之路千万条 正法大道是真途</td>
-</div>
-
 </tr>
 </tbody>
 </table>
+ </div>
+
+
+
+
  <b>【希望之声2018年3月13日】（本台记者慧光综合报导）</b> 我出生在中国大陆的中原——河南省，母亲生我之前已经疯了多年，前面生了六胎都没有活下来，我是第七胎。在我七岁时，母亲就去世了，所以我能活下来也算是一个奇迹，<p>
 
 虽然是活下来了，可我身体一直不好。长期患有心脑血管硬化、支气管炎等病症，导致浑身浮肿，身体虚弱，因经常发生休克而提前办理病退。之后便发现体力和脑力都越来越差，时常还出现神志不清的现象，对人生悲观失望，对活下去没有兴趣了。
