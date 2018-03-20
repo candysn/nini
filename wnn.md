@@ -870,33 +870,33 @@ DAFOH发言人特雷．陲伊医师（Dr. Torsten Trey）表示，世界各地�
 
 <hr>
 <h1 align="center"><b>送你一朵纸莲花 每一片花瓣都有故事</b></h1>
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/Aki-906-a-1-600x400.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">“和平的花瓣”活动宣导理解和宽容，旨在促进世界和平。（大纪元合成）</td>
-</tr>
-</tbody>
-</table>
+
+<div align="center">
+<IMG SRC="wnn/img/Aki-906-a-1-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+和平的花瓣”活动宣导理解和宽容，旨在促进世界和平。（大纪元合成）
+</div>
+<p>
+
+
 【大纪元2018年02月26日讯】（大纪元记者田云综合报导）九张彩纸，一条丝线，折成一朵精美的花，送出一片真心祝福。朋友，您见过这种纸莲花吗？14年来，成千上万朵五彩莲花，盛开在世界各地。您可知道，在缤纷的花瓣里，折叠了怎样的故事？<p>
 
 2003年10月2日，在澳大利亚墨尔本发起了一项国际性活动，叫做“和平的花瓣”。它的创意灵感来自一个名叫“法度”的小女孩，她和母亲戴志珍（Jane Dai）为了和平而奔走，足迹踏遍了40多个国家。
 
 戴志珍是旅澳华人，1997年回中国时读到了《转法轮》，开始修炼法轮大法。1999年7月，中共发动了对法轮功的镇压，一夜之间，这种功法被禁止，许多修炼者被抓捕。戴志珍的丈夫陈承勇也是法轮功学员。他认为政府一定是搞错了，他要说句公道话。他写了一封简短的信：“法轮功非常好，法轮功使我和我的家人受益无穷。”
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/2004-6-2-lotus-2-600x450.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">莲花出淤泥而不染，象征高洁的品质。(Jane Dai/Petals of Peace)</td>
-</tr>
-</tbody>
-</table>
-陈承勇去北京上访，却被抓捕，释放回家后又遭到绑架和酷刑折磨。2001年7月，戴志珍得到了丈夫去世的消息，当时，他们的女儿法度才一岁多。戴志珍说，听到噩耗后，“我心都碎了，整天把自己关在房间里，谁也不想见。第二天早上，我的头发全白了”。
 
+<div align="center">
+<IMG SRC="wnn/img/2004-6-2-lotus-2-600x450.jpg" width=640>
+</div>
+
+<div align="center">
+莲花出淤泥而不染，象征高洁的品质。(Jane Dai/Petals of Peace)
+</div>
+<p>
+
+陈承勇去北京上访，却被抓捕，释放回家后又遭到绑架和酷刑折磨。2001年7月，戴志珍得到了丈夫去世的消息，当时，他们的女儿法度才一岁多。戴志珍说，听到噩耗后，“我心都碎了，整天把自己关在房间里，谁也不想见。第二天早上，我的头发全白了”。
 
 <div align="center">
 <IMG SRC="wnn/img/NTD_Fadu_Falun-Dafa-2.jpg" width=640>
@@ -906,8 +906,6 @@ DAFOH发言人特雷．陲伊医师（Dr. Torsten Trey）表示，世界各地�
 和平的花瓣”的创意来源于法度的故事。(Jane Dai/Petals of Peace)
 </div>
 <p>
-
-
 
 在中国大陆，还有许多儿童和法度遭遇了同样的悲剧——他们的父亲或母亲因为坚持信仰而被关押、流离失所，甚至被迫害致死。这些孩子承受了与家人分离的痛苦，被剥夺了快乐和幸福。
 
@@ -966,20 +964,17 @@ DAFOH发言人特雷．陲伊医师（Dr. Torsten Trey）表示，世界各地�
 </div>
 <p>
 
-
-
 <hr>
 <h1 align="center"><b>千百度：修炼大法后她自觉成了最幸福的人</b></h1>
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/content_559-45-01-600x400.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">修炼法轮大法那种生命深处的喜悦和充实感，是无以言表的。（明慧网）</td>
-</tr>
-</tbody>
-</table>
+<div align="center">
+<IMG SRC="wnn/img/content_559-45-01-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+修炼法轮大法那种生命深处的喜悦和充实感，是无以言表的。（明慧网）
+</div>
+<p>
+
 【大纪元2018年02月27日讯】这是一个贵州法轮功学员的现身说法，讲述了她修炼法轮大法后所经历的巨大变化。<p>
  
 <b>从吃不了到吃得了</b><p>
