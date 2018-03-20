@@ -7,7 +7,7 @@
 <h1 align="center"><b>一位出家道士走入正法修炼之后……</b></h1>
 
 <div align="center">
-<table border="0" cellspacing="3" cellpadding="3">
+<table border="0" cellspacing="3" cellpadding="3" align="center">
 <tbody>
 <tr>
 <td align="center"><IMG SRC="wnn/img/-2684.jpg" width=640></td>
