@@ -45,6 +45,14 @@
 
 <hr>
 <h1 align="center"><b>“法轮大法好”的呼声令中共如此惶恐不安</b></h1>
+
+<div align="center">
+<IMG SRC="wnn/img/1802171357101973-1-600x400.jpg" width=700>
+</div>
+
+
+
+
 <div align="center">
 <IMG SRC="wnn/img/1802171357101973-1-600x400.jpg" width=700>
 </div>
