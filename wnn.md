@@ -79,7 +79,7 @@
 
 <div align="center">
 <IMG SRC="wnn/img/-2659-600x400.jpg" width=700>
-</div>-2659-600x400
+</div>
 
 <div align="center">
 亿万法轮功学员无限感恩李洪志师父
