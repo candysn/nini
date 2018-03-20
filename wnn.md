@@ -526,7 +526,7 @@
 在劳教所里，刘忠杰拒绝写诽谤法轮功的“保证书”。她被摁在铁椅子里，两个警察用一副带齿的手铐将她双手反背铐在椅背上。一动手铐锯齿就刻进肉中，疼痛钻心。接着，他们又将刘忠杰两脚塞在铁椅子下面的固定的两个孔中，脚进去就抽不出来，更无法活动。
 
 <div align="center">
-<IMG SRC="wnn/img/2006-3-4-msj-kuxin-65-ss.jpg" width=640>
+<IMG SRC="wnn/img/2006-3-4-msj-kuxin-65-ss.jpg" width=300>
 </div>
 
 <div align="center">
