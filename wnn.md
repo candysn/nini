@@ -726,7 +726,6 @@
 <p>
 
 
-
 【希望之声2018年2月27日】（本台记者慧光综合报导）1996年，我妹妹只有十八岁，她健康活泼，聪明漂亮，全家人都很喜欢她。可是在过年期间，她突然发病，全身乏力，低烧不退，且不停的干咳，到本地医院检查，医生诊断为肺炎。天天打针消炎，可病情依然越来越严重。后来换了一家大医院，确诊为突发结核性气胸，右侧肺叶已经全部化脓，原来前面那家医院给误诊了。当时我妹妹危在旦夕，险些失去了治疗机会。<p>
 
 医院为我妹妹做了腋下打洞放脓手术，腋下每天都有脓水流出，需要天天换药清理。本来活泼健康的大姑娘，在短短的两、三个月时间内，突然间变成了佝偻驼背的残疾人，生活几乎不能自理。更为严重的是，后来发现肺部的脓液感染了胸腔，医生说需要再次手术，要把胸腔里的器官全部清洗一遍，还不能保证手术能否成功。如果手术不成功，也许今后会成为植物人。而这次手术的费用需要五万元。
@@ -763,8 +762,6 @@
 中共活体摘取法轮功学员器官的罪行，近日在土耳其国际移植大会上被曝光。(Christopher Furlong/Getty Images）
 </div>
 <p>
-
-
 
 【大纪元2014年09月13日讯】（大纪元记者章洪报导）为期四天的第十四届中东器官移植大会，9月10日上午在土耳其伊斯坦布尔市WOW大酒店的会展中心开幕，会上中共活摘器官的罪恶再被聚焦。在2008年的伊斯坦布尔会议上，国际器官移植学会正式提出了伊斯坦布尔宣言（Declaration of Istanbul），成为国际医学界对于器官移植与器官捐赠的伦理指引方针。<p>
 
@@ -899,67 +896,76 @@ DAFOH发言人特雷．陲伊医师（Dr. Torsten Trey）表示，世界各地�
 </tbody>
 </table>
 陈承勇去北京上访，却被抓捕，释放回家后又遭到绑架和酷刑折磨。2001年7月，戴志珍得到了丈夫去世的消息，当时，他们的女儿法度才一岁多。戴志珍说，听到噩耗后，“我心都碎了，整天把自己关在房间里，谁也不想见。第二天早上，我的头发全白了”。
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/NTD_Fadu_Falun-Dafa-2.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">“和平的花瓣”的创意来源于法度的故事。(Jane Dai/Petals of Peace)</td>
-</tr>
-</tbody>
-</table>
+
+
+<div align="center">
+<IMG SRC="wnn/img/NTD_Fadu_Falun-Dafa-2.jpg" width=640>
+</div>
+
+<div align="center">
+和平的花瓣”的创意来源于法度的故事。(Jane Dai/Petals of Peace)
+</div>
+<p>
+
+
+
 在中国大陆，还有许多儿童和法度遭遇了同样的悲剧——他们的父亲或母亲因为坚持信仰而被关押、流离失所，甚至被迫害致死。这些孩子承受了与家人分离的痛苦，被剥夺了快乐和幸福。
 
 多年来，戴志珍带着法度一道，向各界讲述自己的亲身经历，呼吁人们关注对法轮功的迫害，帮助无辜的法轮功学员。她们教小孩子制作纸莲花，传递“真善忍”的美好，倡导理解、宽容，促进世界和平。这就是“和平花瓣”的宗旨。
 
 戴志珍曾对媒体表示：“莲花，它象征着和平。唯有真的想要做一个好人的时候，你才会有内在的宁静和平。”
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/FaduStoryP8_r1_c1.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">戴志珍和女儿法度在一起。(Jane Dai/Petals of Peace)</td>
-</tr>
-</tbody>
-</table>
+
+<div align="center">
+<IMG SRC="wnn/img/FaduStoryP8_r1_c1.jpg" width=640>
+</div>
+
+<div align="center">
+戴志珍和女儿法度在一起。(Jane Dai/Petals of Peace)
+</div>
+<p>
+
+
+
 “和平的花瓣”首先在澳洲的学校和社区的年轻人中推广开来，很快在世界各地获得热烈响应。在制作莲花时，又增添了新的创意：人们把一枚写有“法轮大法好”、“真、善、忍”的书签缀在花朵下面。
 
 制作纸莲花需要细致的手工：裁纸、折叠、系线、伸展花瓣、连接书签或卡片等。美国麻州的一位志愿者说：“我们从来不觉得做莲花很难或是费时间。这是个愉快的过程。这些美丽的花朵能触动人们心底的善念，让他们感受并支持‘真、善、忍’。
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/falun-dafa-na-festivale-zdravfest-2017-foto-5-600x413.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">孩子们都喜欢纸莲花。(Jane Dai/Petals of Peace)</td>
-</tr>
-</tbody>
-</table>
+
+
+<div align="center">
+<IMG SRC="wnn/img/falun-dafa-na-festivale-zdravfest-2017-foto-5-600x413.jpg" width=640>
+</div>
+
+<div align="center">
+孩子们都喜欢纸莲花。(Jane Dai/Petals of Peace)
+</div>
+<p>
+
+
+
 在印度庞地切里市，美术老师塔尼娅·维诺格拉多沃是折莲花的能手。她从一位德国女士那里学到了这种技巧。每一次，当她分发莲花时，接受礼物的人都发出惊叹，向她致谢。有些人把纸莲花挂在车里或手袋上，有些人则放在家中，时时欣赏。
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/A01-450x635.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">孩子们都喜欢纸莲花。(Veeresh M. Honnihal/NTD.tv)</td>
-</tr>
-</tbody>
-</table>
+
+
+<div align="center">
+<IMG SRC="wnn/img/A01-450x635.jpg" width=640>
+</div>
+
+<div align="center">
+孩子们都喜欢纸莲花。(Veeresh M. Honnihal/NTD.tv)
+</div>
+<p>
+
+
 在中华文化中，莲花出淤泥而不染，象征高洁的品质。法轮功学员制作的纸莲花，包含了更深的内涵。每一片闪亮的花瓣，展示出坚定的信念、真诚的诉说和美好的期望。朵朵“希望之莲”散发着特殊的光采，如清风掠过，拂动心灵。
-<table border="0" cellspacing="3" cellpadding="3">
-<tbody>
-<tr>
-<td align="center"><IMG SRC="wnn/img/NTD_Petals-of-Peace-450x600.jpg" width=880></td>
-</tr>
-<tr>
-<td align="center">五彩莲花创意缤纷。(Petals of Peace/Facebook)</td>
-</tr>
-</tbody>
-</table>
-<IMG SRC="wnn/img/Lotus-5-450x65.jpg"width=880></p>
+
+<div align="center">
+<IMG SRC="wnn/img/NTD_Petals-of-Peace-450x600.jpg" width=640>
+</div>
+
+<div align="center">
+>五彩莲花创意缤纷。(Petals of Peace/Facebook)
+</div>
+<p>
+
 
 
 <hr>
