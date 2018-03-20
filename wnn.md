@@ -1372,7 +1372,7 @@ DAFOH发言人特雷．陲伊医师（Dr. Torsten Trey）表示，世界各地�
 
 然而，自江泽民集团疯狂迫害法轮功以来，大女儿因坚持信仰被公安非法关押、游街、劳教。警察三番五次来抄家，丈夫高吉瑞受惊吓心碎而死。2016年4月19日晚，牡丹江国保撬门抄家，45岁的小儿子高一喜被绑架。10天后他离奇身亡，遗体遭强行解剖。
 <div align="center">
-<IMG SRC="wnn/img/22016-5-30-minghui-mudanjiang-gaoyixi-1-ss.jpg" width=640>
+<IMG SRC="wnn/img/22016-5-30-minghui-mudanjiang-gaoyixi-1-ss.jpg" >
 </div>
 
 <div align="center">
