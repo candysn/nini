@@ -3,8 +3,7 @@
 <IMG SRC="wnn/img/b17-5.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">epub電子書</a></h1>
 <hr>
-
-<IMG SRC="img/aa31.jpg"width=880></p>
+<IMG SRC="wnn/img/aa31.jpg" width=880>
 
 
 <hr>
