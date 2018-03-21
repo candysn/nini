@@ -491,7 +491,7 @@
 
 <div align="center">
 <IMG SRC="wnn/img/-2610-600x400.jpg" width=640>
-</div>-2610-600x400
+</div>
 
 <div align="center">
 克里丝正在佛教圣地——鹿野苑炼法轮功的第五套功法
