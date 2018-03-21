@@ -2,8 +2,17 @@
 <hr>
 <IMG SRC="wnn/img/b17-5.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">epub電子書</a></h1>
+
 <hr>
 <IMG SRC="wnn/img/aa 32.jpg" width=880>
+<div align="center">
+<IMG SRC="wnn/img/6-693-600x400.jpg" width=640>
+</div>
+
+<div align="center">
+转法轮》是净化心灵的宝书
+</div>
+<p>
 
 
 <hr>
