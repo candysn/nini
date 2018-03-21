@@ -128,8 +128,10 @@
  
 
 <hr>
-<IMG SRC="wnn/img/aa3536.jpg" width=640>
 
+<div align="center">
+<IMG SRC="wnn/img/aa3536.jpg" width=640>
+</div>
 
 
 <div align="center">
