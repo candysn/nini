@@ -4,6 +4,10 @@
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">epub電子書</a></h1>
 <hr>
 
+<IMG SRC="img/aa31.jpg"width=880></p>
+
+
+<hr>
 <h1 align="center"><b>三退得福报故事几则</b></h1>
 <div align="center">
 <IMG SRC="wnn/img/images.jpg" width=640>
