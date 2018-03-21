@@ -44,7 +44,9 @@
 
 
 <hr>
-<h1 align="center"><b>三退得福报故事几则</b></h1>
+
+<IMG SRC="wnn/img/aa34.jpg"width=880></p>
+
 <div align="center">
 <IMG SRC="wnn/img/images.jpg" width=640>
 </div>
