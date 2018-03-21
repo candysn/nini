@@ -128,9 +128,9 @@
  
 
 <hr>
-<IMG SRC="wnn/img/aa3536.jpg" width=880>
+<IMG SRC="wnn/img/aa3536.jpg" width=640>
 
-<h1 align="center"><b>一位出家道士走入正法修炼之后……</b></h1>
+
 
 <div align="center">
 <IMG SRC="wnn/img/-2684.jpg" width=640>
