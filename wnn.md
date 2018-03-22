@@ -129,7 +129,7 @@
 
 <hr>
 
-<h1 align="center"><b>一位出家道士走入正法修炼之后……XXXXX</b></h1>
+<h1 align="center"><b>一位出家道士走入正法修炼之后……</b></h1>
 
 
 <div align="center">
