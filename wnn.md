@@ -5,6 +5,7 @@
 
 <hr>
 <IMG SRC="wnn/img/aa 32.jpg" width=880>
+
 <div align="center">
 <IMG SRC="wnn/img/6-693-600x400.jpg" width=640>
 </div>
