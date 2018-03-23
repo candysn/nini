@@ -49,7 +49,7 @@
 <h1 align="center"><b>三退得福报故事几则</b></h1>
 
 <div align="center">
-<IMG SRC="wnn/img/images.jpg" width=640>
+<IMG SRC="wnn/img/parade_47__@1200x1200.jpg" width=640>
 </div>
 <p>
  
