@@ -3,7 +3,7 @@
 <IMG SRC="wnn/img/b17-5.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">epub電子書</a></h1>
 <hr>
-<h1 align="center"><b>优昙婆罗花绽放在我家【音频】</b></h1>
+<h1 align="center"><b>优昙婆罗花绽放在我家</b></h1>
 
 <div align="center">
 <IMG SRC="wnn/img/-2670.jpg" width=640>
