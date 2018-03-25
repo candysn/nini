@@ -27,7 +27,7 @@
 我看到有资料上说，释迦牟尼佛在开示未来佛转轮圣王下世传法时，普天之下会出现一种异象，就是有一种名叫“优昙婆罗花”的花会在世界各地开放，提示人们转轮圣王已经下世传法度人了。
 
 <div align="center">
-<IMG SRC="wnn/img/5-859.jpg" width=400>
+<IMG SRC="wnn/img/5-859.jpg" width=350>
 </div>
 
 <div align="center">
