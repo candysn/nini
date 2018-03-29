@@ -2,6 +2,11 @@
 <hr>
 <IMG SRC="wnn/img/b17-5.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">epub電子書</a></h1>
+
+<hr>
+<h1 align="center"><b>纽约新移民谈“三退”：解体中共复兴中华</b></h1>
+<h2 align="center"><b>亲见中共活摘器官 从大陆司法人变国际维权律师 国内网上声明退党</b></h2>
+
 <hr>
 <h1 align="center"><b>酒徒的转变——一位电视台记者的自述</b></h1>
 <div align="center">
