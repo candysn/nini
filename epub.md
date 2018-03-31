@@ -6,7 +6,7 @@
 
 <tr>
 	<td>小之每日真相_0301-0331</td>
-	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/20001-1~12.epub?raw=true">圖文</a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/2018-Come%20for%20you(%E4%B8%80).epub?raw=true">圖文</a></td>
 </tr>	
 
 <tr>
