@@ -20,7 +20,6 @@
 <div align="center">
 <IMG SRC="wnn/img/18-0331-2.jpg" width=640>
 </div>
-
 <div align="center">
 法轮功创始人李洪志先生。（明慧网）
 </div>
