@@ -3,6 +3,20 @@
 <IMG SRC="wnn/img/b17-5.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">epub電子書</a></h1>
 <hr>
+
+<h1 align="center"><b>美国乔治亚州参议院通过决议案</b></h1>
+<h2 align="center"><b>谴责中共活摘器官</b></h2>
+<div align="center">	
+<IMG SRC="wnn/img/18-0401-1.jpg" width=640>	
+</div>	
+	<div align="center">	
+美国乔治亚州议会大楼
+</div>	
+ 
+ 
+
+
+<hr>
 <h1 align="center"><b>【法轮功真相系列】永恒的感恩</b></h1>
 <div align="center">
 <IMG SRC="wnn/img/18-0331-1.jpg" width=640>
