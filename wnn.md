@@ -1074,7 +1074,7 @@
 明慧网二零一八年二月十四日报道：肖荣女士，一九五八年九月二十五日出生，一九九九年七月二十日迫害发生以前修炼法轮大法，身体和心性得到根本性提高。二零零八年从商业系统退休。肖荣坚持按真、善、忍标准做好人修炼，二零零零年被非法拘留十五天，二零一六年被警察蹲坑绑架，非法拘留三十四天，后被勒索一万元后取保候审。
 
 <div align="center">
-<IMG SRC="wnn/img/2004-10-10-fanxiaoli_5-600x450.jpg" width=500>
+<IMG SRC="wnn/img/2004-10-10-fanxiaoli_5-600x450.jpg" width=450>
 </div>
 
 <div align="center">
@@ -1088,7 +1088,7 @@
 肖荣二零一八年一月十二日被劫持的第一天就被关在刑警大队铁笼子里，在汉中市看守所有人看到她手在后背被铐著。
 
 <div align="center">
-<IMG SRC="wnn/img/2004-11-11-hljbeijing2-600x660.jpg" width=500>
+<IMG SRC="wnn/img/2004-11-11-hljbeijing2-600x660.jpg" width=450>
 </div>
 
 <div align="center">
