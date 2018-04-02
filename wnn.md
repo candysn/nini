@@ -533,7 +533,7 @@ http://www.legis.ga.gov/legislation/en-US/Display/20172018/SR/629
 
 <b>联邦参议员：对中共沉默意味着成为帮凶</b>
 <div align="center">
-<IMG SRC="wnn/img/2018-3-26-_05--ss.jpg" width=640>
+<IMG SRC="wnn/img/2018-3-26-_05--ss.jpg" width=500>
 </div>
 
 <div align="center">
@@ -550,7 +550,7 @@ http://www.legis.ga.gov/legislation/en-US/Display/20172018/SR/629
 <b>非政府组织前负责人：抗议中共而非中国</b>
 
 <div align="center">
-<IMG SRC="wnn/img/2018-3-26-_06--ss.jpg" width=640>
+<IMG SRC="wnn/img/2018-3-26-_06--ss.jpg" width=550>
 </div>
 
 <div align="center">
@@ -569,7 +569,7 @@ http://www.legis.ga.gov/legislation/en-US/Display/20172018/SR/629
 <b>《天安门时报》主编：三退与澳洲华人息息相关</b>
 
 <div align="center">
-<IMG SRC="wnn/img/2018-3-26_07--ss.jpg" width=640>
+<IMG SRC="wnn/img/2018-3-26_07--ss.jpg" width=500>
 </div>
 
 <div align="center">
@@ -590,7 +590,7 @@ http://www.legis.ga.gov/legislation/en-US/Display/20172018/SR/629
 <b>西人游客：三亿民众三退令人振奋</b>
 
 <div align="center">
-<IMG SRC="wnn/img/2018-3-26-08.jpg" width=640>
+<IMG SRC="wnn/img/2018-3-26-08.jpg" width=500>
 </div>
 
 <div align="center">
@@ -606,7 +606,7 @@ http://www.legis.ga.gov/legislation/en-US/Display/20172018/SR/629
 
 她最后表示，今天晚上和朋友共进晚餐的时候，就会把了解的一切和他们分享，她说：“我以前不知道共产党在中国杀害了这么多人，八千万，可能更多，今天所看到的这一切，好像是让我惊醒了。”
 <div align="center">
-<IMG SRC="wnn/img/2018-3-26-_09--ss.jpg" width=640>
+<IMG SRC="wnn/img/2018-3-26-_09--ss.jpg" width=500>
 </div>
 
 <div align="center">
