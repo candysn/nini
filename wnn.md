@@ -28,7 +28,7 @@
 在监狱里，他为妻子绘制贺卡，上面画着一对喜鹊，还有一朵玉兰花。他写道：“春天，玉兰花开，让你我的心洁净。”
 
 <div align="center">
-<IMG SRC="wnn/img/18-0403-2.jpg" width=500>
+<IMG SRC="wnn/img/18-0403-2.jpg" width=550>
 </div>
 
 <div align="center">
