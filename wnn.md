@@ -28,7 +28,7 @@
 在监狱里，他为妻子绘制贺卡，上面画着一对喜鹊，还有一朵玉兰花。他写道：“春天，玉兰花开，让你我的心洁净。”
 
 <div align="center">
-<IMG SRC="wnn/img/18-0403-2.jpg" width=640>
+<IMG SRC="wnn/img/18-0403-2.jpg" width=500>
 </div>
 
 <div align="center">
@@ -45,7 +45,7 @@
 戊戌新年，秦尉将在铁窗内度过，家中84岁的母亲病卧在床，日夜盼儿归。
 
 <div align="center">
-<IMG SRC="wnn/img/18-0403-3.jpg" width=550>
+<IMG SRC="wnn/img/18-0403-3.jpg" width=450>
 </div>
 
 <div align="center">
@@ -53,7 +53,7 @@
 </div>
 <p>
 <div align="center">
-<IMG SRC="wnn/img/18-0403-4.jpg" width=500>
+<IMG SRC="wnn/img/18-0403-4.jpg" width=600>
 </div>
 	
 	
