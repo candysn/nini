@@ -4,6 +4,38 @@
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">epub電子書</a></h1>
 <hr>
 
+<h1 align="center"><b>蒙特利尔声援三亿人三退　民众支持</b></h1>
+【明慧网二零一八年四月三日】二零一八年三月三十一日星期六，加拿大魁北克省法轮功学员和民众在蒙特利尔举行集会和游行，声援三亿人在大纪元退党网站上声明退出中共的党、团、队组织（简称“三退”），并呼吁更多的中国民众觉醒，加入三退大潮，活动受到在场民众的热烈响应和支持。<p>
+<div align="center">
+<IMG SRC="wnn/img/18-0402-1.jpg" width=640>
+</div>
+<p>
+<div align="center">
+<IMG SRC="wnn/img/18-0402-2.jpg" width=640>
+</div>	
+<p>	
+	
+<div align="center">
+<IMG SRC="wnn/img/18-0402-3.jpg" width=640>
+</div>
+
+<div align="center">
+图1-3：蒙特利尔声援三亿人三退集会现场
+</div>
+<p>
+<div align="center">
+<IMG SRC="wnn/img/18-0402-4.jpg" width=640>
+</div>
+
+<div align="center">
+图2-4：蒙特利尔声援三亿人三退的游行队伍经过唐人街
+</div>
+<p>
+	
+
+
+<hr>
+
 <h1 align="center"><b>美国乔治亚州参议院通过决议案</b></h1>
 <h2 align="center"><b>谴责中共活摘器官</b></h2>
 <div align="center">	
