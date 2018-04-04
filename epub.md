@@ -8,6 +8,11 @@
 	<td>小之每日真相_0301-0331</td>
 	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/2018-Come%20for%20you(%E4%B8%80).epub?raw=true">圖文</a></td>
 </tr>	
+	<td>法轮大法洪传世界</td>
+	
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/fldfhao.epub?raw=true
+">圖文、epub</a></td>
+
 
 <tr>
         <td>16年前的長春3.05插播壯舉 </td>
@@ -16,8 +21,17 @@
 
 <tr>
 	<td>【突破封锁看世界】翻墙软件手册</td>
-	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/305.epub?raw=true">圖文、epub</a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/fangqian.epub?raw=true>圖文、epub</a></td>
 </tr>
+<tr>
+        <td>法轮大法洪传世界</td>
+        <td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/fldfhao.epub?raw=true">圖文epub</a></td>
+</tr>		
+<tr>
+        <td>【九评共产党简介】</td>
+        <td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/jpgcdm4a5k.epub?raw=true">圖文epub</a></td>
+</tr>		
+		
 <tr>
 	<td>【九评共产党】</td>
 	<td><a href="https://git.io/9ping">圖文epub</a></td>
@@ -36,7 +50,7 @@
 </tr>
 <tr>
 	<td>江泽民其人</td>
-	<td><a href="https://git.io/jzmqr">圖文epub</a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/jzmqr-p-2018.epub?raw=true">圖文epub</a></td>
 </tr>
 <tr>
 	<td>风雨天地行</td>
