@@ -9,10 +9,9 @@
 	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/2018-Come%20for%20you(%E4%B8%80).epub?raw=true">圖文</a></td>
 </tr>	
 	<td>法轮大法洪传世界</td>
-	
 	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/fldfhao.epub?raw=true
 ">圖文、epub</a></td>
-
+</tr>
 
 <tr>
         <td>16年前的長春3.05插播壯舉 </td>
