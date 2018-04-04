@@ -127,10 +127,6 @@
 <IMG SRC="wnn/img/18-0403-4.jpg" width=600>
 </div>
 	
-	
-
-
-
 
 <hr>
 <h1 align="center"><b>蒙特利尔声援三亿人三退　民众支持</b></h1>
