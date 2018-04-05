@@ -40,14 +40,14 @@
 
 吉林省浩宇工贸有限公司（归属于梅河口监狱）生产的部分奴工产品：
 <div align="center">
-<IMG SRC="wnn/img/18-0406-6.jpg" width=300>
+<IMG SRC="wnn/img/18-0406-6.jpg" width=250>
 </div>
 <div align="center">
 羊毛毯
 </div>
 <p>
 <div align="center">
-<IMG SRC="wnn/img/18-0406-7.jpg" width=300>
+<IMG SRC="wnn/img/18-0406-7.jpg" width=250>
 </div>
 <div align="center">
 皇宫毯
