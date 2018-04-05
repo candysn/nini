@@ -34,20 +34,20 @@
 大陆许多监狱、劳教所等对外称公司，实际上出售的是在押犯人的奴工产品，如山东省兴业发展有限公司（山东省女子监狱）生产的知名品牌：
 
 <div align="center">
-<IMG SRC="wnn/img/18-0406-6-1.jpg" width=640>
+<IMG SRC="wnn/img/18-0406-6-1.jpg" width=300>
 </div>
 <p>
 
 吉林省浩宇工贸有限公司（归属于梅河口监狱）生产的部分奴工产品：
 <div align="center">
-<IMG SRC="wnn/img/18-0406-6.jpg" width=640>
+<IMG SRC="wnn/img/18-0406-6.jpg" width=300>
 </div>
 <div align="center">
 羊毛毯
 </div>
 <p>
 <div align="center">
-<IMG SRC="wnn/img/18-0406-7.jpg" width=640>
+<IMG SRC="wnn/img/18-0406-7.jpg" width=300>
 </div>
 <div align="center">
 皇宫毯
@@ -60,12 +60,12 @@
 
 杭州中赛贸易有限公司产品加工场所举例：
 <div align="center">		
-<IMG SRC="wnn/img/18-0406-8.jpg" width=640>		
+<IMG SRC="wnn/img/18-0406-8.jpg" width=500>		
 </div>		
 <p>
 
 <div align="center">		
-<IMG SRC="wnn/img/18-0406-9.jpg" width=640>		
+<IMG SRC="wnn/img/18-0406-9.jpg" width=500>		
 </div>		
 
 <p>
