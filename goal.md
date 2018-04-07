@@ -53,9 +53,9 @@
 </td>
 </tr>
 <tr>
-	<td><a href="https://github.com/dfchunsring/yue/blob/master/downdoad/ntdGoalCN1.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/p8654841a650831227.jpg?raw=true" width="265"  border="0" alt=""></a></td>
-	<td><a href="https://github.com/dfchunsring/yue/blob/master/downdoad/ntdGoalCN2.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/p8654841a650831227.jpg?raw=true" width="265"  border="0" alt=""></a></td>
-	<td><a href="https://github.com/dfchunsring/yue/blob/master/downdoad/ntdGoalCN3.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/p8654841a650831227.jpg?raw=true" width="265"  border="0" alt=""></a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh1.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/p8654841a650831227.jpg?raw=true" width="265"  border="0" alt=""></a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh2.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/p8654841a650831227.jpg?raw=true" width="265"  border="0" alt=""></a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh3.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/p8654841a650831227.jpg?raw=true" width="265"  border="0" alt=""></a></td>
 </tr>
 <tr>
 	<td><center><a href="https://github.com/dfchunsring/yue/blob/master/epub/goalCh1.epub?raw=true">【共产主义的终极目的】（1）</a></center></td>
