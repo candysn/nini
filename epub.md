@@ -57,7 +57,7 @@
 </tr>
 <tr>
 	<td>为什么要三退</td>
-	<td><a href="https://git.io/whytd">圖文epub</a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/300Mst.epub?raw=true">圖文epub</a></td>
 </tr>
 <tr>
 	<td>死刑犯遮不住器官市场的蘑菇云</td>
