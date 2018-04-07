@@ -2,7 +2,7 @@
 <hr>
 <IMG SRC="wnn/img/b17-7.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">epub電子書</a></h1>
-<h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md">绝对震撼！精彩视频</a></h1>
+<h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md">绝对震撼！精彩视频！赶紧看！过了这个村 没有这个店</a></h1>
 <hr>
 <h1 align="center"><b>幸遇法轮大法 一双儿女来报到</b></h1>
 <div align="center">	
