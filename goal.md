@@ -73,25 +73,25 @@
 	<td><center><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh6.epub?raw=true">【共产主义的终极目的】（6）</a></center></td>
 </tr>
 <tr>
-	<td><a href="https://github.com/dfchunsring/yue/blob/master/downdoad/ntdGoalCN7.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/download.jpg?raw=true""></a></td>
-	<td><a href="https://github.com/dfchunsring/yue/blob/master/downdoad/goalCh8.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/download.jpg?raw=true""></a></td>
-	<td><a href="https://github.com/dfchunsring/yue/blob/master/downdoad/goalCh9.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/download.jpg?raw=true""></a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh7.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/download.jpg?raw=true""></a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh8.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/download.jpg?raw=true""></a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh9.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/download.jpg?raw=true""></a></td>
 </tr>
 <tr>
-	<td><center><a href="https://github.com/dfchunsring/yue/blob/master/epub/goalCh7.epub?raw=true">【共产主义的终极目的】（7）</a></center></td>
-	<td><center><a href="https://github.com/dfchunsring/yue/blob/master/epub/goalCh8.epub?raw=true">【共产主义的终极目的】（8）</a></center></td>
-	<td><center><a href="https://github.com/dfchunsring/yue/blob/master/epub/goalCh9.epub?raw=true">【共产主义的终极目的】（9）</a></center></td>
+	<td><center><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh7.epub?raw=true">【共产主义的终极目的】（7）</a></center></td>
+	<td><center><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh8.epub?raw=true">【共产主义的终极目的】（8）</a></center></td>
+	<td><center><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh9.epub?raw=true">【共产主义的终极目的】（9）</a></center></td>
 </tr>
 
 <tr>
-	<td><a href="https://github.com/dfchunsring/yue/blob/master/downdoad/goalCh10.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/p8654841a650831227.jpg?raw=true""></a></td>
-	<td><a href="https://github.com/dfchunsring/yue/blob/master/downdoad/goalCh11.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/p8654841a650831227.jpg?raw=true""></a></td>
-	<td><a href="https://github.com/dfchunsring/yue/blob/master/downdoad/goalCh12.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/p8654841a650831227.jpg?raw=true""></a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh10.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/p8654841a650831227.jpg?raw=true""></a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh11.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/p8654841a650831227.jpg?raw=true""></a></td>
+	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh12.epub?raw=true"><img src="https://github.com/dfchunsring/yue/blob/master/img/p8654841a650831227.jpg?raw=true""></a></td>
 </tr>
 	<tr>
-	<td><center><a href="https://github.com/dfchunsring/yue/blob/master/epub/goalCh10.epub?raw=true">【共产主义的终极目的】（10）</a></center></td>
-	<td><center><a href="https://github.com/dfchunsring/yue/blob/master/epub/goalCh11.epub?raw=true">【共产主义的终极目的】（11）</a></center></td>
-	<td><center><a href="https://github.com/dfchunsring/yue/blob/master/epub/goalCh12.epub?raw=true">【共产主义的终极目的】（12）</a></center></td>
+	<td><center><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh10.epub?raw=true">【共产主义的终极目的】（10）</a></center></td>
+	<td><center><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh11.epub?raw=true">【共产主义的终极目的】（11）</a></center></td>
+	<td><center><a href="https://github.com/candysn/nini/blob/master/wnn/epub/goalCh12.epub?raw=true">【共产主义的终极目的】（12）</a></center></td>
 </tr>
 
 
