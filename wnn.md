@@ -4,7 +4,7 @@
 
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">epub電子書</a></h1>
 
-<h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/c01-3.jpg" width=880></a></h1>
+<h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/c01-4.jpg" width=880></a></h1>
 <hr>
 <h1 align="center"><b>几千万元打水漂了 ——如此灾难何以解脱？</b></h1>
 <div align="center">
