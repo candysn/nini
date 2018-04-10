@@ -4,6 +4,59 @@
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">epub電子書</a></h1>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/c01-4.jpg" width=880></a></h1>
 <hr>
+
+<h1 align="center"><b>在奥克兰国际文化节上介绍法轮功</b></h1>
+
+【明慧网二零一八年四月九日】二零一八年四月八日，新西兰奥克兰国际文化节在Mt Roskill的战争纪念馆公园举行。晴朗的天气，轻抚的微风，阵阵飘香的各国美食，风格迥异的民族歌舞表演，吸引了许多人全家一起出动，老的少的，脸上都笑盈盈的。<p>
+
+<div align="center">
+<IMG SRC="wnn/img/18-0410-4.jpg" width=640>
+</div>
+<p>
+<div align="center">
+<IMG SRC="wnn/img/18-0410-5.jpg" width=640>
+</div>
+<p>
+<div align="center">
+<IMG SRC="wnn/img/18-0410-10.jpg" width=640>
+</div>
+<div align="center">
+图1～3：法轮功学员们应邀参加奥克兰国际文化节
+</div>
+<p>
+
+法轮功学员们应邀参加了这个一年一度的文化节，在文化节的舞台上表演了腰鼓，还展示了五套功法。腰鼓表演赢得了阵阵掌声，优美祥和的功法展示，让人们不禁在台下学炼。法轮功学员介绍中国文化的展位上，更是人来人往，有学折莲花的，有学剪纸的，有咨询中医中药的，还有不少人了解真相后，要学法轮功的。
+<div align="center">	
+<IMG SRC="wnn/img/18-0410-6.jpg" width=640>	
+</div>
+<div align="center">
+露易丝（左）向法轮功学员咨询
+</div>
+<p>
+
+露易丝（Louise Mahoney）是一位年轻姑娘，练过十年的各种气功，她觉得自己经常没有什么精神和气力，浑身冰冷。当她听闻法轮功后，非常欣喜，得知教功录像及大法书籍可以从网上免费下载，更是非常感动。她说她一定要学，还要介绍给她的妈妈。
+<div align="center">
+<IMG SRC="wnn/img/18-0410-7.jpg" width=640>
+</div>
+<div align="center">
+塔妮（右）和她的朋友支持法轮功学员反迫害
+</div>
+<p>
+	
+塔妮（Tani Witter）说，她喜欢中国人，新西兰的历史也有中国人的贡献，中国人在十八世纪就来新西兰淘金采矿，参加铁路建设，努力工作，她欣赏中国文化，中国的美食让人难以忘怀。但是，她不喜欢中国当今的独裁统治者（中共），排除异己，和北韩一样，她实在不理解中共为何迫害法轮功。中共活摘法轮功学员的器官牟利的罪恶更让她匪夷所思。
+<div align="center">
+<IMG SRC="wnn/img/18-0410-8.jpg" width=640>
+</div>
+<div align="center">
+赛米和卡茹喜欢法轮功学员的腰鼓队
+</div>
+<p>
+
+赛米（Sammy）和卡茹（Cara）是文化节的工作人员，她们说，法轮功学员的腰鼓队，服装很好看，很醒目，金黄的颜色走到哪里，就象耀眼的阳光照到哪里。她们了解法轮功，因为法轮功学员经常会参加社区活动。
+
+	
+	
+<hr>
 <h1 align="center"><b>记一个从阎王殿走回来的人</b></h1>
 <div align="center">	
 <IMG SRC="wnn/img/18-0410-9.jpg" width=640>	
