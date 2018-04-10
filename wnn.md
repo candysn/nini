@@ -9,7 +9,7 @@
 
 <h1 align="center"><b>“天安门自焚”真相</b></h1>
 <div align="center">
-<IMG SRC="wnn/img/18-0410-2.jpg" width=640>
+<IMG SRC="wnn/img/18-0410-2.jpg" width=550>
 </div>
 <p>
 	
@@ -19,7 +19,7 @@
 
 当局的准备不仅仅是这些，央视紧跟着推出了攻击法轮功的“自焚新闻”、“焦点访谈”，而且强制全国各界、各企事业单位观看，反复“学习”。然而事与愿违的是， 反复播放的录像却暴露了越来越多的破绽，显出这是一场骗局。<p>
 	
-<a href="XXXXX">国际教育发展组织：该事件是由政府一手导演的</a>
+<a href="国际教育发展组织：该事件是由政府一手导演的"></a>
 <div align="center">
 <IMG SRC="wnn/img/18-0410-3.jpg" width=450>
 </div>
