@@ -13,17 +13,14 @@
 ">圖文、epub</a></td>
 </tr>
 
-<tr>
-        <td>16年前的長春3.05插播壯舉 </td>
-        <td><a href="https://git.io/9ping">圖文epub</a></td>
-</tr>
+
 
 <tr>
 	<td>【突破封锁看世界】翻墙软件手册</td>
 	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/fangqian.epub?raw=true>圖文、epub</a></td>
 </tr>
 <tr>
-        <td>法轮大法洪传世界</td>
+        <td>【法轮大法洪传世界】</td>
         <td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/fldfhao.epub?raw=true">圖文epub</a></td>
 </tr>		
 <tr>
@@ -39,6 +36,11 @@
 	<td>【共产主义的终极目的中国篇】</td>
 	<td><a href="https://github.com/3fmd/gm/blob/master/gm/epub/gbUltiGoalCmChina.epub?raw=true">圖文epub</a>&nbsp;&nbsp;<a href="https://git.io/8k">鑲崁8k音頻epub</a>&nbsp;&nbsp;<a href="https://github.com/3fmd/gm/blob/master/gm/epub/goalmp4Npf.epub?raw=true" target="_blank">mp4播报版 epub </a></td>
 </tr>
+<tr>
+        <td>16年前的長春3.05插播壯舉 </td>
+        <td><a href="https://git.io/9ping">圖文epub</a></td>
+</tr>
+
 <tr>
 	<td>解體黨文化</td>
 	<td><a href="https://git.io/jtdwh">圖文epub</a></td>
