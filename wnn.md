@@ -25,7 +25,7 @@
 <b>议员代表：无法用语言表达发生在中国的罪恶</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0411-2.jpg" width=640>
+<IMG SRC="wnn/img/18-0411-2.jpg" width=500>
 </div>
 <div align="center">
 丹麦人民党议员克劳斯·维斯特·汉森在议会大会议厅主席台上发言。
@@ -39,7 +39,7 @@
 <b>执政党议员：中共干扰神韵在皇家剧院演出太可耻</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0411-3.jpg" width=640>
+<IMG SRC="wnn/img/18-0411-3.jpg" width=500>
 </div>
 <div align="center">
 丹麦执政党——自由党议员，外事发言人迈克尔·阿斯特鲁普·詹森在答辩会中，提出了中共把手伸进丹麦内政，干扰神韵演出的事。
@@ -53,7 +53,7 @@
 <b>红绿联盟党议员：必须对中共明确发声　停止迫害！</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0411-4.jpg" width=640>
+<IMG SRC="wnn/img/18-0411-4.jpg" width=500>
 </div>
 <div align="center">
 丹麦红绿联盟党议员（EL）尼古拉·韦勒姆森（Nikolaj Villumsen）在答辩会上发言
@@ -66,7 +66,7 @@
 <b>人民党议员：我们面对的是种族灭绝罪行</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0411-5.jpg" width=640>
+<IMG SRC="wnn/img/18-0411-5.jpg" width=500>
 </div>
 <div align="center">
 丹麦人民党议员肯尼斯·克里斯坦森·泊斯（Kenneth Kristensen Berth）指出中共就是红色法西斯！
@@ -83,7 +83,7 @@
 <b>自选党议员：继续谴责中共罪行</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0411-6.jpg" width=640>
+<IMG SRC="wnn/img/18-0411-6.jpg" width=500>
 </div>
 <div align="center">
 丹麦自选党（ALT）发言人拉斯慕斯·诺德科威斯特（Rasmus Nordqvist）在答辩会上发言
@@ -96,7 +96,7 @@
 <b>外交大臣：中共在继续迫害法轮功</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0411-7.jpg" width=640>
+<IMG SRC="wnn/img/18-0411-7.jpg" width=500>
 </div>
 <div align="center">
 丹麦外交大臣安德斯·萨缪尔森（Anders Samuelsen）在答辩会上答复议员质询
