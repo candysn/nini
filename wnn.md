@@ -63,6 +63,7 @@
 <hr>
 
 <h1 align="center"><b>法轮功禁止杀生和自杀 </b></h1>
+
 <div align="center">
 <IMG SRC="wnn/img/18-0411-8.jpg" width=640>
 </div>
