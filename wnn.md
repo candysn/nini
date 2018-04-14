@@ -49,6 +49,7 @@
 
 <div align="center">
 <IMG SRC="wnn/img/</div>18-0414-5.jpg" width=640>
+</div>
 <div align="center">
 悠扬、悦耳的炼功音乐，舒缓祥和的炼功场面吸引了不少人当场学炼功动作。（明慧网）
 </div>
