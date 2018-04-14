@@ -35,6 +35,7 @@
 <div align="center">
 轮功学员在健康博览会上向人们介绍法轮功、讲述法轮功真相。（明慧网）
 </div>
+<p>
 	
 <div align="center">
 <IMG SRC="wnn/img/18-0414-4.jpg" width=640>
