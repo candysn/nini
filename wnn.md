@@ -24,10 +24,10 @@
 约克区警方表示，这个活动已经成为该辖区的传统，今年是第十六届，他们希望通过这项活动增进社区各个族裔的沟通和了解，吸引了众多社团参加。	
 
 <div align="center">
-<IMG SRC="wnn/img/圖片XXX.jpg" width=640>
+<IMG SRC="wnn/img/18-0416-3.jpg" width=640>
 </div>
 <div align="center">
-18-0414-3
+图3：约克区警察总长艾里克·乔里夫（Eric Jolliffe，左二）与法轮功学员合影
 </div>
 <p>
 	
