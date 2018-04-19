@@ -9,7 +9,7 @@
 <h1 align="center"><b>【传奇人生】癌末比丘尼的奇迹</b></h1>
 <div align="center">
 
-<IMG SRC="wnn/img/18-0419-1.jpg" width=640>
+<IMG SRC="wnn/img/18-0419-1.jpg" width=640>width=640>https://github.com/candysn/nini/commit/396671abcdab07781b1c4a9793efab16c0f07bb1
 
 </div>
 <p>
