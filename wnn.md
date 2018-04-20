@@ -1,6 +1,6 @@
 <a href="https://git.io/ffq"><IMG SRC="wnn/img/113.jpg" width=880></a></p>
 <hr>
-<IMG SRC="wnn/img/gin-0420.jpg"width=880></p>
+<IMG SRC="wnn/img/b17-11.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">免费下载epub电子书</a></h1>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/c01-4.jpg" width=880></a></h1>
 <hr>
