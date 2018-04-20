@@ -1,7 +1,7 @@
 <table  cellspacing="1" cellpadding="1">
 <tr  width="880">
-	<td  width="280">书名</td>
-	<td  width="600">說明</td>
+	<td  width="600">书名</td>
+	<td  width="200">說明</td>
 </tr>
 <tr>
         <td>【小之每日真相_0401-0430】</td>
