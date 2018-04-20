@@ -1,15 +1,15 @@
 <table  cellspacing="1" cellpadding="1">
 <tr  width="880">
 	<td  width="450">书名</td>
-	<td>說明</td>
+	<td width="450">說明</td>
 </tr>
 <tr>
-        <td width="ˋ50">【小之每日真相_0401-0430】</td>
-        <td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/2018-Come%20for%20you(%E4%BA%8C).epub?raw=true">圖文epub</a></td>
+        <td width="450">【小之每日真相_0401-0430】</td>
+        <td width="450"><a href="https://github.com/candysn/nini/blob/master/wnn/epub/2018-Come%20for%20you(%E4%BA%8C).epub?raw=true">圖文epub</a></td>
 </tr>
 <tr>
 	<td width="450">【小之每日真相_0301-0331】</td>
-	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/2018-Come%20for%20you(%E4%B8%80).epub?raw=true">圖文epub</a></td>
+	<td width="450"><a href="https://github.com/candysn/nini/blob/master/wnn/epub/2018-Come%20for%20you(%E4%B8%80).epub?raw=true">圖文epub</a></td>
 </tr>	
 	<td>【法轮大法洪传世界】</td>
 	<td><a href="https://github.com/candysn/nini/blob/master/wnn/epub/fldfhao.epub?raw=true">圖文epub</a></td>
