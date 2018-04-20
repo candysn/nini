@@ -30,7 +30,7 @@
 “（神韵）巡演正在把其弘扬到全球。”他表示，十分钦佩神韵复兴中国传统文化的宗旨。
 
 <div align="center">
-<IMG SRC="wnn/img/18-0420-3.jpg" width=640>
+<IMG SRC="wnn/img/18-0420-3.jpg" width=550>
 </div>
 <div align="center">
 尖端科技重量级人物矢部孝（Takashi Yabe）观赏神韵演出后表示：“世界知道真正的中国文化的宝贵非常重要。”（余钢／大纪元）
