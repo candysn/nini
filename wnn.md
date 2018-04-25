@@ -67,7 +67,7 @@ DAFOH（医生反对强摘器官组织）的英国代表Adnan Sharif医生认为
 Sharif表示：“作为医生，就是要坚持道德，这是我们原则的一部分，必须遵守道德规范。我们会一直持续下去，直到我们有完整的证据证明这种情况已经停止，并且对已经发生的事情有一定的问责。”
 
 <div align="center">
-<IMG SRC="wnn/img/圖片XXX.jpg" width=640>
+<IMG SRC="wnn/img/18-0425-6.jpg" width=640>
 </div>
 <div align="center">
 图为美国政治系教授大卫·柯克姆（David Kirkham）博士。（肖悯／大纪元）
