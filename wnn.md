@@ -24,7 +24,7 @@
 <p>
 
 <div align="center">
-<IMG SRC="wnn/img/18-4020-5.jpg" width=640>
+<IMG SRC="wnn/img/18-4020-5.jpg" width=550>
 </div>
 <div align="center">
 索菲亚参加墨尔本当地的法轮功学员反迫害活动。
