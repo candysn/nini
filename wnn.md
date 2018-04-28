@@ -3,7 +3,8 @@
 <IMG SRC="wnn/img/0421-3.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">免费下载epub电子书</a></h1>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/c01-06.jpg" width=880></a></h1>
-<IMG SRC="wnn/img/18-04-28.jpg"width=700></p>
+<div align="center"><IMG SRC="wnn/img/18-04-28.jpg" width=640></div>
+
 
 
 
