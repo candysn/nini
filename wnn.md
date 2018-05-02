@@ -239,7 +239,7 @@
 <hr>
 <h2 align="center"><b>在中国秘密拍摄的记录片</b></h2>
 <h1 align="center"><b>死亡vs求救 一封来自中国劳教所的亲笔“信”</b></h1>
-<h2 align="center"><b>“我会再坚持一秒钟。一次再坚持一秒，这就是我活下来的原因。”</b></h2>
+<h3 align="center"><b>“我会再坚持一秒钟。一次再坚持一秒，这就是我活下来的原因。”</b></h3>
 
 <div align="center">
 <IMG SRC="wnn/img/18-0502-1.jpg" width=640>
