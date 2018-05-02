@@ -12,7 +12,7 @@
 <p>
 
 <div align="center">
-<IMG SRC="wnn/img/ 18-0429-1.jpg" width=640>
+<IMG SRC="wnn/img/18-0429-1.jpg" width=640>
 </div>
 <div align="center">
 印度某航空公司空中乘务员普拉贾塔（Prajakta）
@@ -22,7 +22,7 @@
 【希望之声2018年4月26日】（本台记者慧光综合报导）
 普拉贾塔（Prajakta）是一位漂亮、充满活力的印度“空姐”，她出生在印度的大城市孟买，今年三十二岁了。然而难以想象的是，在她年轻美丽的外表后面，却经历了长达六年的病痛折磨。<p>
 <div align="center">
-<IMG SRC="wnn/img/18-0429-2.jpg" width=640>
+<IMG SRC="wnn/img/18-0429-2.jpg" width=500>
 </div>
 <div align="center">
 普拉贾塔（Prajakta）在机场休息时 
@@ -49,7 +49,7 @@
 
 从此，普拉贾塔每天都坚持学法、炼功。
 <div align="center">
-<IMG SRC="wnn/img/ 18-0429-3.jpg" width=640>
+<IMG SRC="wnn/img/18-0429-3.jpg" width=640>
 
 </div>
 <div align="center">
