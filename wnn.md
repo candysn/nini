@@ -9,7 +9,7 @@
 <h1 align="center"><b>称赞提升道德 加国多市市长贺法轮大法日</b></h1>
 
 <div align="center">
-<IMG SRC="wnn/img/圖片XXX.jpg" width=450>
+<IMG SRC="wnn/img/18-0502-5.jpg" width=640>
 </div>
 <div align="center">
 </div>
@@ -23,7 +23,7 @@
 <b>Peterborough市长：“真、善、忍”理念是所有社会的指路灯！</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0502-6.jpg" width=450>
+<IMG SRC="wnn/img/18-0502-6.jpg" width=350>
 </div>
 <p>
 
@@ -36,7 +36,7 @@
 <b>Bradford市长：修炼者对“真、善、忍”的坚守为世界树立榜样</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0502-7.jpg" width=640>
+<IMG SRC="wnn/img/18-0502-7.jpg" width=350>
 </div>
 <p>
 
