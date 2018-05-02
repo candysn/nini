@@ -2,6 +2,29 @@
 <hr>
 <IMG SRC="wnn/img/0501.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">免费下载epub电子书</a></h1>
+
+
+<hr>
+
+<h2 align="center"><b>在中国秘密拍摄的记录片</b></h2>
+
+
+<h1 align="center"><b>死亡vs求救 一封来自中国劳教所的亲笔“信”</b></h1>
+
+
+<h2 align="center"><b>“我会再坚持一秒钟。一次再坚持一秒，这就是我活下来的原因。”</b></h2>
+
+<div align="center">
+<IMG SRC="wnn/img/18-0502-1.jpg" width=640>
+</div>
+<div align="center">
+孙毅的自画像，描述了他在向外面世界求救时感到的绝望。这封信导致马三家劳教所的关闭。（剧组提供）
+</div>
+<p>
+
+
+<hr>
+
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/c01-06.jpg" width=880></a></h1>
 <div align="center"><IMG SRC="wnn/img/18-04-28.jpg" width=640></div>
 
