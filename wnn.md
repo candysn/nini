@@ -3,8 +3,11 @@
 <IMG SRC="wnn/img/0501.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">免费下载epub电子书</a></h1>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/D-00.jpg" width=880></a></h1>
+<div align="center"><IMG SRC="wnn/img/18-04-28.jpg" width=640></div>
 
 <hr>
+
+
 
 <h1 align="center"><b>称赞提升道德 加国多市市长贺法轮大法日</b></h1>
 
@@ -232,7 +235,7 @@
 
 镇长：Aldo DiCarlo	
 	
-	
+
 	
 	
 	
@@ -309,11 +312,7 @@
 
 
 
-<hr>
 
-<div align="center"><IMG SRC="wnn/img/18-04-28.jpg" width=640></div>
-
-<hr>
 
 <h1 align="center"><b>神奇的得法经历</b></h1>
 <div align="center">
