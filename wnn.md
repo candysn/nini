@@ -51,7 +51,7 @@
 <b>St. Catharine市长赞法轮大法提升社会道德</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0502-8.jpg" width=450>
+<IMG SRC="wnn/img/18-0502-8.jpg" width=350>
 </div>
 <p>
 	
@@ -70,7 +70,7 @@
 <b>Burlington市长：“真、善、忍”启迪人心</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0502-9.jpg" width=450>
+<IMG SRC="wnn/img/18-0502-9.jpg" width=350>
 </div>
 <p>
 
@@ -84,7 +84,7 @@
 <b>Vaughan市长赞扬法轮大法为民众精神和身体健康做出的贡献</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0502-10.jpg" width=450>
+<IMG SRC="wnn/img/18-0502-10.jpg" width=350>
 </div>
 <p>
 
@@ -98,7 +98,7 @@
 <b>Oshawa市长：法轮大法让社会平和、民众健康</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0502-11.jpg" width=450>
+<IMG SRC="wnn/img/18-0502-11.jpg" width=350>
 </div>
 <p>
 
@@ -112,7 +112,7 @@
 <b>Barrie市长：祝修炼者对法轮大法的坚信带来心灵提升</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0502-12.jpg" width=450>
+<IMG SRC="wnn/img/18-0502-12.jpg" width=350>
 </div>
 <p>
 	
@@ -127,7 +127,7 @@
 
 <b>Belleville市长：祝贺法轮大法传世26周年</b>
 <div align="center">
-<IMG SRC="wnn/img/18-0502-13.jpg" width=450>
+<IMG SRC="wnn/img/18-0502-13.jpg" width=350>
 </div>
 <p>
 
@@ -144,7 +144,7 @@
 <b>安省米尔顿（Milton）市长克兰茨（Gordon Krantz）宣布2018年5月13日为米尔顿法轮大法日，并褒奖法轮大法。</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0502-14.jpg" width=450>
+<IMG SRC="wnn/img/18-0502-14.jpg" width=350>
 </div>
 <p>
 
@@ -164,7 +164,7 @@
 <b>安省奥克维尔（Oakville）市长宣布2018年5月13日为法轮大法日：</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0502-15.jpg" width=450>
+<IMG SRC="wnn/img/18-0502-15.jpg" width=350>
 </div>
 <p>
 
@@ -187,7 +187,7 @@
 <b>安省北湾（North Bay）市长Al McDonald宣布2018年5月13日为法轮大法日。</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0502-16.jpg" width=450>
+<IMG SRC="wnn/img/18-0502-16.jpg" width=350>
 </div>
 <p>
 
@@ -208,7 +208,7 @@
 <b>安省Amherstburg镇褒奖 镇长吁民众敞开胸怀庆祝法轮大法月</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0502-17.jpg" width=640>
+<IMG SRC="wnn/img/18-0502-17.jpg" width=350>
 </div>
 <p>
 
