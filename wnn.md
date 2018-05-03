@@ -11,7 +11,7 @@
 <h1 align="center"><b>九成美国人信神与神之启示</b></h1>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0503/.jpg" width=640>
+<IMG SRC="wnn/img/18-0503.jpg" width=640>
 </div>
 <div align="center">
 2018年2月8日上午，川普出席在华府希尔顿酒店举行的第66届国家祈祷早餐会上发表演说时表示，美国是一个“信仰者的国家”，因“祈祷的力量”而更强大。(Mike Theiler-Pool/Getty Images)
