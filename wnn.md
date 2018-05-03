@@ -3,7 +3,7 @@
 <IMG SRC="wnn/img/0501.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">免费下载epub电子书</a></h1>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/D-00.jpg" width=880></a></h1>
-<div align="center"><IMG SRC="wnn/img/18-04-28.jpg" width=640></div>
+
 <hr>
 	
 <h1 align="center"><b>九成美国人信神与神之启示</b></h1>
@@ -48,7 +48,9 @@
 
 这个世界上到底有没有神，很多人都在探寻，而诸多美国人感知到的神的力量一再被报导，焉知不是神的慈悲？如果世上神佛果然存在，我们惟有遵循神的旨意行事，这也意味着，所有逆天之举、包括迫害走在神路上的人，都将给自身、乃至国家带来深重灾难。
 
+<hr>
 
+<div align="center"><IMG SRC="wnn/img/18-04-28.jpg" width=640></div>
 <hr>
 <h1 align="center"><b>亚洲泌尿年会　逾百位医师联署反中共活摘</b></h1>
 
