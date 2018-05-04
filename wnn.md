@@ -3,6 +3,9 @@
 <IMG SRC="wnn/img/a01.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/D-00.jpg" width=880></a></h1>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">免费下载epub电子书</a></h1>
+<div align="center"><IMG SRC="wnn/img/18-04-28.jpg" width=640></div>
+
+
 
 <hr>
 
@@ -39,9 +42,6 @@
 
 
 
-<hr>
-<div align="center"><IMG SRC="wnn/img/18-04-28.jpg" width=640></div>
-<hr>
 
 
 	
