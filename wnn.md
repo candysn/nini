@@ -5,7 +5,7 @@
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/epub.md">免费下载epub电子书</a></h1>
 <div align="center"><IMG SRC="wnn/img/18-04-28.jpg" width=640></div>
 
-<hr>
+
 
 
 
@@ -16,7 +16,6 @@
 <IMG SRC="wnn/img/18-0429-5.jpg" width=640>
 </div>
 <div align="center">
-
 天降人间有奇书 救苦救难济苍生
 </div>
 <p>
@@ -295,9 +294,7 @@
 李洪志师父说：“修炼本身并不苦，关键是放不下常人的执著。”当你真正放下常人的执著，按照“真、善、忍”去做而不求结果时，结果往往是“柳暗花明又一村”，“无求而自得”。我在修炼路上经常是这样。
 
 
-
-
-
+<div align="center"><IMG SRC="wnn/img/18-0403-4.jpg" width=640></div>
 
 	
 <h1 align="center"><b>九成美国人信神与神之启示</b></h1>
