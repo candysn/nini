@@ -38,7 +38,7 @@
 <p>
 	
 <div align="center">
-<IMG SRC="wnn/img/18-0514-4.jpg" width=640>
+<IMG SRC="wnn/img/18-0514-4.jpg" width=550>
 </div>
 <p>
 
