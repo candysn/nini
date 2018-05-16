@@ -38,7 +38,7 @@
 
 
 <div align="center">
-<IMG SRC="wnn/img/ 18-0504-6.jpg" width=640>
+<IMG SRC="wnn/img/18-0504-6.jpg" width=640>
 </div>
 <div align="center">
 普拉迪普在炼法轮功第五套功法——静功
@@ -51,7 +51,7 @@
 
 普拉迪普说：“这套功法的好处不仅仅停留在身体层面。看了法轮功的主要著作《转法轮》后，让我很惊讶，书中的内容简单而深刻，回答了我一生中不解的许多问题。法轮功的核心原则是‘真、善、忍’，这也说到我心里去了，唤醒了我心中内在的力量。不仅为我自己，也为更好的履行我的职责，为家人，为我的学生和工作人员找到了一个很好的方向。”
 <div align="center">
-<IMG SRC="wnn/img/ 18-0504-7.jpg" width=640>
+<IMG SRC="wnn/img/18-0504-7.jpg" width=640>
 </div>
 <div align="center">
 普拉迪普组织学生学炼法轮功 
@@ -63,7 +63,7 @@
 他还说：“法轮功是植根于古老传统文化体系的具有珍贵普世价值的修炼方法，我要将法轮功的美好传播给我熟悉的每一个人，因此，我决定向邻近城镇的各学校推荐法轮功。”
 
 <div align="center">
-<IMG SRC="wnn/img/ 18-0504-8.jpg" width=640>
+<IMG SRC="wnn/img/18-0504-8.jpg" width=640>
 </div>
 <div align="center">
 普拉迪普在办公室
