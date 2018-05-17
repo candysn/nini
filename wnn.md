@@ -20,7 +20,7 @@
 她是美国专业音乐人米卡‧黑尔（Mika Hale），演唱的歌曲名为《生生为此生》。谁能想到10年前，她的人生竟充满了无望，“我的人际关系一片混乱，尤其是和家人之间的关系非常紧张。2007年，我对人生充满绝望，我甚至每天在窗外祈祷——祈祷自己被杀死，（以获得解脱）。”	
 
 <div align="center">
-<IMG SRC="wnn/img/18-0517-3.jpg"width=640>
+<IMG SRC="wnn/img/18-0517-3.jpg"width=500>
 </div><div align="center">
 专业音乐人米卡‧黑尔（Mika Hale） (Bowen Xiao/The Epoch Times)
 </div>
@@ -112,14 +112,14 @@
 <p>
 	
 <div align="center">
-<IMG SRC="wnn/img18-0517-8.jpg"width=640>
+<IMG SRC="wnn/img/18-0517-8.jpg"width=640>
 </div><div align="center">
 （Instagram&Facebook: Pooja Mor／大纪元合成）
 </div>
 <p>
 	
 <div align="center">
-<IMG SRC="wnn/img18-0517-9.jpg"width=640>
+<IMG SRC="wnn/img/18-0517-9.jpg"width=640>
 </div><div align="center">
 普贾•莫尔2016年春登《时尚芭莎》杂志封面。(Pooja Mor/Facebook)
 </div>
