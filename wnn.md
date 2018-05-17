@@ -119,7 +119,7 @@
 <p>
 	
 <div align="center">
-<IMG SRC="wnn/img/18-0517-9.jpg"width=640>
+<IMG SRC="wnn/img/18-0517-9.jpg"width=550>
 </div><div align="center">
 普贾•莫尔2016年春登《时尚芭莎》杂志封面。(Pooja Mor/Facebook)
 </div>
