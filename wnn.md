@@ -23,7 +23,7 @@ Sam和太太Annie虽然都快60岁了，但看起来非常年轻，充满活力�
 “我是1995年来澳洲和Sam团聚的，他1990年就来了。”开朗健谈的Annie手捧一杯热茶，在幽幽的茶香中，将他们的故事婉婉道来。
 
 <div align="center">
-<IMG SRC="wnn/img/18-0521-2.jpg"width=640>
+<IMG SRC="wnn/img/18-0521-2.jpg"width=550>
 </div><div align="center">
 Sam夫妇合照。（Sam夫妇提供）
 </div>
@@ -90,7 +90,7 @@ Sam夫妇的儿子Eddy。（Sam夫妇提供）
 <b>坐拥数套房产 明明白白吃亏</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0521-5.jpg"width=640>
+<IMG SRC="wnn/img/18-0521-5.jpg"width=550>
 </div><div align="center">
 Sam夫妇合照。（Sam夫妇提供）
 </div>
