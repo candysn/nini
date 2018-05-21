@@ -109,7 +109,7 @@ Sam夫妇合照。（Sam夫妇提供）
 <b>一人修炼，全家受益</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0521-6"width=640>
+<IMG SRC="wnn/img/18-0521-6.jpg"width=640>
 </div><div align="center">
 Sam夫妇与女儿合照。（Sam夫妇提供）
 </div>
