@@ -57,7 +57,7 @@ Sam夫妇合照。（Sam夫妇提供）
 <b>笨孩子”入职澳洲皇家海军军乐队</b>“
 
 <div align="center">
-<IMG SRC="wnn/img/18-0521-5.jpg"width=640>
+<IMG SRC="wnn/img/18-0521-4.jpg"width=640>
 </div><div align="center">
 Sam夫妇的儿子Eddy。（Sam夫妇提供）
 </div>
@@ -90,7 +90,7 @@ Sam夫妇的儿子Eddy。（Sam夫妇提供）
 <b>坐拥数套房产 明明白白吃亏</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0521-4.jpg"width=640>
+<IMG SRC="wnn/img/18-0521-5.jpg"width=640>
 </div><div align="center">
 Sam夫妇合照。（Sam夫妇提供）
 </div>
@@ -109,7 +109,7 @@ Sam夫妇合照。（Sam夫妇提供）
 <b>一人修炼，全家受益</b>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0521-4.jpg"width=640>
+<IMG SRC="wnn/img/18-0521-6"width=640>
 </div><div align="center">
 Sam夫妇与女儿合照。（Sam夫妇提供）
 </div>
