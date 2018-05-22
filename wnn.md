@@ -1789,7 +1789,7 @@ Sam（前右）、太太Annie（前左）一家幸福合照。（Sam夫妇提供
 
 
 <div align="center"><IMG SRC="wnn/img/18-0403-4.jpg" width=640></div>
-
+<hr>
 	
 <h1 align="center"><b>九成美国人信神与神之启示</b></h1>
 
