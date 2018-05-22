@@ -876,7 +876,7 @@ Sam（前右）、太太Annie（前左）一家幸福合照。（Sam夫妇提供
 才能圆满随师返回天乡
 
 <div align="center">
-<IMG SRC="wnn/img18-0514-6.jpg" width=640>
+<IMG SRC="wnn/img/18-0514-6.jpg" width=640>
 </div>
 <p>
 天津市宁河区大法弟子在贺词中说：
