@@ -75,8 +75,8 @@
 <div align="center">
 <IMG SRC="wnn/img/18-0527-7.jpg"width=640>
 </div><div align="center">
-文字XXX
-</div>七百多名印尼国立巴淡岛高中学生及教师集体学炼法轮功。（明慧网）
+七百多名印尼国立巴淡岛高中学生及教师集体学炼法轮功。（明慧网）
+</div>
 <p>
 
 
