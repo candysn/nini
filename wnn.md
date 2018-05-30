@@ -22,7 +22,7 @@
 <p>	
 	
 <div align="center">
-<IMG SRC="wnn/img18-0530-16.jpg"width=640>
+<IMG SRC="wnn/img/18-0530-16.jpg"width=640>
 </div><div align="center">
 图1～3：民众在联合市议会大厅学功
 </div>
