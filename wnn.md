@@ -158,7 +158,7 @@
 他如饥似渴地看了李洪志师父更多的著作，同时按“真、善、忍”的原则行事。孩子们说：“爸爸学了法轮功之后，真的很不一样，脾气变好很多。”当时上小学二年级的儿子也跟着福强学炼法轮功。
 
 <div align="center">
-<IMG SRC="wnn/img/18-0531-3.jpg"width=500>
+<IMG SRC="wnn/img/18-0531-3.jpg"width=450>
 </div><div align="center">
 高福强（明慧网）
 </div>
@@ -206,7 +206,7 @@
 村里人看到她们婆媳的关系彻底变好了，由衷地赞叹法轮功的威力。很多村民在家里都贴上了“法轮大法好”的年画。
 
 <div align="center">
-<IMG SRC="wnn/img/18-0531-4.jpg"width=550>
+<IMG SRC="wnn/img/18-0531-4.jpg"width=450>
 </div><div align="center">
 村民都贴上“法轮大法好”的年画。（明慧网/凤华提供）
 </div>
