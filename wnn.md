@@ -62,7 +62,7 @@
 2007年，他被绑架到臭名昭著的沈阳马三家教养院，遭受了“铐地环”等等酷刑折磨。
 
 <div align="center">
-<IMG SRC="wnn/img/18-0602-2.jpg"width=640>
+<IMG SRC="wnn/img/18-0602-2.jpg"width=420>
 </div><div align="center">
 中共酷刑演示：铐地环。（明慧网）
 </div>
