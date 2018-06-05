@@ -7,7 +7,6 @@
 	
 <hr>
 
-
 <h1 align="center"><b>出生印度的美国软件工程师走入法轮功修炼</b></h1>  
 
 <div align="center">
