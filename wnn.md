@@ -63,7 +63,11 @@
 
 
 <hr>
-<IMG SRC="wnn/img/a05.jpg"width=640></p>
+<div align="center">
+<IMG SRC="wnn/img/a05.jpg.jpg" width=640>
+</div>
+<p>
+
 
 <hr>
 
