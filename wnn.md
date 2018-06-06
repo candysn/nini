@@ -4,6 +4,64 @@
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/D-00.jpg" width=880></a></h1>
 <h1 align="center"><a href="https://git.io/3f">免费下载epub电子书</a></h1>
 <div align="center"><IMG SRC="wnn/img/18-0403-4.jpg" width=640></div>
+	
+
+<hr>
+
+
+<h1 align="center"><b>“脱帽节，我向法轮功脱帽致敬”
+</b></h1>
+
+【明慧网二零一八年六月四日】（明慧记者张然温哥华报道）“这是我是第一次看到法轮功，我最喜欢法轮功的游行队伍，所以我拿了资料准备多了解法轮功。今天是脱帽节，我向法轮功脱帽致敬。”约翰尼（Johnny）先生在观看本拿比脱帽节游行时高兴地说。
+<p>
+
+<div align="center">
+<IMG SRC="wnn/img/18+0605-3.jpg" width=640>
+</div>
+<p>
+
+<div align="center">
+<IMG SRC="wnn/img/18-0605-4.jpg" width=640>
+</div>
+<p>
+
+<div align="center">
+<IMG SRC="wnn/img/18-0605-5.jpg" width=640>
+</div>
+<p>
+
+<div align="center">
+<IMG SRC="wnn/img/18-0605-6.jpg" width=640>
+</div>
+<p>
+
+<div align="center">
+<IMG SRC="wnn/img/18-0605-7.jpg" width=640>
+</div>
+<p>
+
+<div align="center">
+<IMG SRC="wnn/img/18-0605-8.jpg" width=640>
+</div>
+<p>
+
+<div align="center">
+<IMG SRC="wnn/img/18-0605-9.jpg" width=640>
+</div>
+<div align="center">
+图1～7：温哥华法轮功学员参加了本拿比市（Burnaby）脱帽节（Hats off）游行，受到观众热烈欢迎。</div>
+<p>
+
+二零一八年六月二日，温哥华法轮功学员参加了本拿比市（Burnaby）脱帽节（Hats off）游行，温哥华法轮功学员的游行团体包括天国乐团，真善忍花车，腰鼓队，法轮功功法演示队，受到观众热烈欢迎，很多的观众表示，看游行遇到法轮功很高兴，并纷纷拿了法轮功真相资料表示要多了解法轮功的真相。上面那一幕是当约翰尼（Johnny）先生看到法轮功学员的队伍时所说。
+
+玛丽·勒平（Mary Lepine）女士是本拿比市府的职员，她在现场推广紧急救护的信息，她表示，我多次看到法轮功的团体，但一直没有机会了解法轮功的具体信息，今天在游行中又看到法轮功的团队，觉得很好，色彩明亮，服饰很有中国传统特点，花车装饰的很美，特别是莲花很体现中国传统文化的特点，我觉得很好，所以我拿了法轮功资料要多了解些法轮功的信息。
+
+皇家骑警查克·麦当劳（Chuck McDonald）先生是游行皇家骑警的领队，他表示，游行是社区团聚的好机会，每个不同的社团都有机会表现自己的文化，感谢法轮功参加游行带来中国传统文化。
+
+
+	
+	
+	
 <hr>
 
 
