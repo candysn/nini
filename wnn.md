@@ -65,7 +65,7 @@
 <hr>
 
 <div align="center">
-<IMG SRC="wnn/img/a05.jpg.jpg" width=640>
+<IMG SRC="wnn/img/a05.jpg" width=640>
 </div>
 <p>
 
@@ -79,7 +79,7 @@
 <p>
 
 <div align="center">
-<IMG SRC="wnn/img/18+0605-3.jpg" width=640>
+<IMG SRC="wnn/img/18-0605-3.jpg" width=640>
 </div>
 <p>
 
