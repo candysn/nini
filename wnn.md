@@ -12,7 +12,7 @@
  </b></h1>
 
 <div align="center">
-<IMG SRC="wnn/img/ 18-0606-5.jpg" width=640>
+<IMG SRC="wnn/img/18-0606-5.jpg" width=640>
 </div>
 <div align="center">
 台湾法轮大法学会4月22日举办全球声援三亿人退出中共党、团、队暨纪念“4.25”中国法轮功学员和平上访19周年活动。图为法轮功学员在台北游行。（陈柏州／大纪元）</div>
@@ -30,7 +30,7 @@
 19年来，有无数法轮功学员被非法绑架，被关进精神病院、洗脑班、劳教所和监狱，甚至被迫害致死、致残、致疯，甚至活摘法轮功学员的器官牟利。无数家庭家破人亡、妻离子散。
 
 <div align="center">
-<IMG SRC="wnn/img/ 18-0606-6.jpg" width=640>
+<IMG SRC="wnn/img/18-0606-6.jpg" width=640>
 </div>
 <div align="center">
 19年来，有无数法轮功学员被非法绑架，被关进精神病院、洗脑班、劳教所和监狱，甚至被迫害致死、致残、致疯，甚至活摘法轮功学员的器官牟利。（戴兵/大纪元）
@@ -76,7 +76,7 @@
 今年6月4日，香港各界人士在维多利亚公园举行悼念活动，纪念“六四”29周年。据支联会估算，当天到场人数达到11.5万人。
 
 <div align="center">
-<IMG SRC="wnn/img/ 18-0606-8.jpg" width=640>
+<IMG SRC="wnn/img/18-0606-8.jpg" width=640>
 </div>
 <div align="center">
 29年来，“六四”天安门事件一直是中共避谈的话题，也一直掩盖着这段历史的真相。图为6月4日，有11.5万香港各界人士悼念六四受害者。（李逸／大纪元）</div>
@@ -93,7 +93,7 @@
 
 
 <div align="center">
-<IMG SRC="wnn/img/ 18-0606-9.jpg" width=640>
+<IMG SRC="wnn/img/18-0606-9.jpg" width=640>
 </div>
 <div align="center">
 
@@ -114,7 +114,7 @@
 
 
 <div align="center">
-<IMG SRC="wnn/img/ 18-0606-10.jpg" width=640>
+<IMG SRC="wnn/img/18-0606-10.jpg" width=640>
 </div>
 <div align="center">
 今年“六四”前夕，来自全国各地数千名退役老兵聚集河南漯河市，声讨被抓的军嫂翟洪莲以及数十名退役军人。（网络图片）</div>
@@ -137,7 +137,7 @@
 据统计，湖南、湖北、河南、河北、江苏、江西、海南、福建、甘肃、青海、四川、贵州、等18个省份40多个城市的塔吊司机，于4月26日或27日、28日、29日间，在各地打出要求涨薪的横幅。估计人数达上万人。
 
 <div align="center">
-<IMG SRC="wnn/img/ 18-0606-11.jpg" width=640>
+<IMG SRC="wnn/img/18-0606-11.jpg" width=640>
 </div>
 <div align="center">
 
