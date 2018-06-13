@@ -89,7 +89,7 @@ Nguyen Van Bai是一名越战老兵，在战争期间受到了化学毒害，日
 有一天，我注意到，这位老人炼功的动作很不同。他在地上静坐，双腿盘起。我上前询问，他告诉我，这套功法的效力最强大，是中国古老的精神修炼法——法轮大法的一部分。他说，如果我学炼，肯定会受益的。
 
 <div align="center">
-<IMG SRC="wnn/img/108-0612-4.jpg" width=640>
+<IMG SRC="wnn/img/18-0612-4.jpg" width=500>
 </div>
 <div align="center">
 Nguyen Van Bai是一名越战老兵，在战争期间受到了化学毒害，日后患上多种疾病。绝望之际，奇迹降临。（新唐人电视台）
@@ -107,7 +107,7 @@ Nguyen Van Bai是一名越战老兵，在战争期间受到了化学毒害，日
 记得新年前，我打扫房屋时，看到了药柜。那里面堆满了西药和草药，药品上覆盖着一层灰尘。我把所有的药都丢掉了，我再也不需要它们了。那真是神奇的一刻啊。
 
 <div align="center">
-<IMG SRC="wnn/img/18-0612-5.jpg" width=640>
+<IMG SRC="wnn/img/18-0612-5.jpg" width=500>
 </div>
 <div align="center">
 修炼法轮大法后，Nguyen Van Bai的银屑病和皮肤感染都消失了。（新唐人电视台）
@@ -126,7 +126,7 @@ Nguyen Van Bai是一名越战老兵，在战争期间受到了化学毒害，日
 我有一个真诚的愿望：与正在受苦的人们分享法轮大法的深奥和奇妙。
 
 <div align="center">
-<IMG SRC="wnn/img/18-0612-6.jpg" width=640>
+<IMG SRC="wnn/img/18-0612-6.jpg" width=500>
 </div>
 <div align="center">
 Nguyen Van Bai是一名键盘手，经常参与文艺表演。（新唐人电视台）
