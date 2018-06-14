@@ -9,7 +9,7 @@
 <hr>
 
 
-<h1 align="center"><b>三生有幸遇大法 明慧不惑返本真</b></h1>
+<H1 align="center"><b>三生有幸遇大法 明慧不惑返本真</b></H1>
 
 <div align="center">
 <IMG SRC="wnn/img/18-0607-2.jpg" width=640>
