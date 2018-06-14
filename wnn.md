@@ -77,7 +77,7 @@
 <b>迫害延伸香港 政界强调挺身而出</b>
 
 <div align="center">
-<IMG SRC="wnn/img/ 18-0613-4.jpg" width=640>
+<IMG SRC="wnn/img/18-0613-4.jpg" width=360>
 </div>
 <div align="center">
 何俊仁
@@ -85,7 +85,7 @@
 <p>
 
 <div align="center">
-<IMG SRC="wnn/img/ 18-0613-5.jpg" width=640>
+<IMG SRC="wnn/img/18-0613-5.jpg" width=360>
 </div>
 <div align="center">
 梁国雄
