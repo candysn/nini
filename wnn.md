@@ -13,7 +13,7 @@
 </b></h1>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0614-1.jpg" width=640>
+<IMG SRC="wnn/img/18-0614-1.jpg" width=500>
 </div>
 <p>
 
