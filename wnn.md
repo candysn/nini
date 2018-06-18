@@ -3,8 +3,8 @@
 <IMG SRC="wnn/img/b17-0.jpg"width=880></p>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/D-00.jpg" width=880></a></h1>
 <h1 align="center"><a href="https://github.com/3fmd/gm/blob/master/epub.md">免费下载epub电子书</a></h1>
-<div align="center"><IMG SRC="wnn/img/a06.jpg" width=640></div>
 <h2 align="center"> (推荐)Reasily - EPUB 阅读器，可以观看视频、音频EPUB。<br><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">点击直接下载</a></h2>
+<div align="center"><IMG SRC="wnn/img/a06.jpg" width=640></div>
 
 
 <hr>
