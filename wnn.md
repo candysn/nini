@@ -11,7 +11,7 @@
 
 <h1 align="center"><b>从气功师到大法弟子</b></h1>   
 <div align="center">
-<IMG SRC="wnn/img/18-0611-6.jpg" width=640>
+<IMG SRC="wnn/img/18-0611-7.jpg" width=640>
 </div>
 <div align="center">
 法轮大法是千年不遇万年不遇的正道大法</div>
