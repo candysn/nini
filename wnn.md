@@ -62,7 +62,7 @@
 
 <b>杨玉永被天津武清区看守所迫害致死</b> 
 <div align="center">
-<IMG SRC="wnn/img/18-0619-4.jpg" width=640>
+<IMG SRC="wnn/img/18-0619-4.jpg" width=500>
 </div>
 <div align="center">
 杨玉永女儿杨光威拿着父亲的遗像。（明慧网）
@@ -85,7 +85,7 @@
 
 滑连有，原天津市显像管厂的会计师、法轮功学员，为人热情、开朗、善良、乐于助人；他喜欢打球，也擅长工艺毛衣的设计，曾经营服装店。
 <div align="center">
-<IMG SRC="wnn/img/18-0619-5.jpg" width=640>
+<IMG SRC="wnn/img/18-0619-5.jpg" width=400>
 </div>
 <div align="center">
 滑连有（明慧网）
