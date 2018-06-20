@@ -9,8 +9,7 @@
 <hr>
 
 
-<h1 align="center"><b>魔都上海高调宣传着魔肝移植医生背后
-</b></h1>  
+<h1 align="center"><b>魔都上海高调宣传着魔肝移植医生背后</b></h1>  
 
 <div align="center">
 <IMG SRC="wnn/img/18-0619-1.jpg" width=640>
