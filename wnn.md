@@ -11,7 +11,6 @@
 
 <h1 align="center"><b>为法轮功辩护被吊照 律师这些话让中共恐惧 </b></h1>
 
-
 <div align="center">
 <IMG SRC="wnn/img/18-0619-13.jpg" width=640>
 </div>
