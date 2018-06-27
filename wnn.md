@@ -34,7 +34,7 @@
 </b>跟其他法轮功学员一起排坐在雨水中的德国法轮功学员迪米特利·粟辛（Dimitli Suchin）正在等待着大家一起完成排法轮图形的活动。
 
 <div align="center">
-<IMG SRC="wnn/img/18-0626-2.jpg" width=640>
+<IMG SRC="wnn/img/18-0626-2.jpg" width=450>
 </div>
 <div align="center">
 图2：德国法轮功学员迪米特利·粟辛（Dimitli Suchin）正在大雨中等待着大家一起完成排法轮图形的活动。（德祥／明慧）
