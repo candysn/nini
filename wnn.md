@@ -13,7 +13,7 @@
 </b></h1>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0704-1.jpg" width=640>
+<IMG SRC="wnn/img/18-0704-1.jpg" width=500>
 </div>
 <div align="center">
 大连律师王永航（大纪元）
@@ -50,7 +50,7 @@
 我说：“我们没有犯罪，被投入监狱已经够冤枉的了，你们有什么必要继续这样折磨我们？有什么意义？”
 
 <div align="center">
-<IMG SRC="wnn/img/18-0704-2.jpg" width=640>
+<IMG SRC="wnn/img/18-0704-2.jpg" width=400>
 </div>
 <div align="center">
 中共迫害法轮功学员的刑具：铁椅子（明慧网）
