@@ -29,7 +29,7 @@
 “我真的感谢我的师父给了我第二次生命，师父不仅告诉我‘真、善、忍’法轮大法的法理，还帮我清理了生不如死的疾患，才令我今天能这么充实幸福地生活着。那种感恩，真的用任何语言也难以表达。”她激动地哽咽著说。
 
 <div align="center">
-<IMG SRC="wnn/img/18-0708-6.jpg" width=640>
+<IMG SRC="wnn/img/18-0708-6.jpg" width=500>
 </div>
 <div align="center">
 2017年5月13日，黄晓敏参加欢庆活动。（明慧网）
@@ -53,7 +53,7 @@
 “那种苦是常人想像不到的”，在拿到奖牌前的8年时间里，她都是这样过来的。	
 
 <div align="center">
-<IMG SRC="wnn/img/18-0708-7.jpg" width=640>
+<IMG SRC="wnn/img/18-0708-7.jpg" width=450>
 </div>
 <div align="center">
 
