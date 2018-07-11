@@ -75,7 +75,7 @@
 在费城执业36年的Ann Corson医生说，“当我听说几位从中国大陆来的人到国际组织ICSA主办的论坛上演讲，我非常关注。”
 
 <div align="center">
-<IMG SRC="wnn/img/18-0709-2.jpg" width=640>
+<IMG SRC="wnn/img/18-0709-3.jpg" width=640>
 </div>
 <div align="center">
 
@@ -110,7 +110,7 @@ Russo医生还说，这是人们所不能接受的。“我们需要保护美国
 <b>法轮功发言人：中共政府派出的这些人要受到美国法律制裁</b>
 
 <div align="center">
-<IMG SRC="wnn/img/ 18-0709-4.jpg" width=640>
+<IMG SRC="wnn/img/18-0709-4.jpg" width=640>
 </div>
 <div align="center">
 
@@ -162,7 +162,7 @@ Russo医生还说，这是人们所不能接受的。“我们需要保护美国
 Barker经常参加ICSA的国际会议，她注意到近几年中共派出了更多的“代表”参加这些会议。
 
 <div align="center">
-<IMG SRC="wnn/img/18*-0709-7.jpg" width=640>
+<IMG SRC="wnn/img/18-0709-7.jpg" width=640>
 </div>
 <div align="center">
 
