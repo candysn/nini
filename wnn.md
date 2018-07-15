@@ -23,7 +23,7 @@
 
 <b>八十八岁时全身病痛，年逾百岁却全身轻松</b>
 <div align="center">
-<IMG SRC="wnn/img/18-0713-1.jpg" width=640>
+<IMG SRC="wnn/img/18-0713-1.jpg" width=500>
 </div>
 <div align="center">
 马济宇先生在炼法轮功
@@ -60,7 +60,7 @@
 
 下面是这位老人的照片
 <div align="center">
-<IMG SRC="wnn/img/18-0713-3.jpg" width=640>
+<IMG SRC="wnn/img/18-0713-2.jpg" width=500>
 </div>
 <p>
 
