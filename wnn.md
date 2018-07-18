@@ -9,8 +9,7 @@
 
 <hr>
 
-<h1 align="center"><b>公安大学副教授赴美出丑 再曝中共自焚骗局
-</b></h1>
+<h1 align="center"><b>公安大学副教授赴美出丑 再曝中共自焚骗局</b></h1>
 
 
 <div align="center">
