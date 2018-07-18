@@ -71,11 +71,10 @@ Alex的爷爷是纳粹大屠杀的幸存者。他说：“我还记得爷爷告�
 <p>
 	
 <div align="center">
-<IMG SRC="wnn/img/18-0718-5jpg" width=640>
+<IMG SRC="wnn/img/18-0718-6jpg" width=640>
 </div>
 <div align="center">
-
-中国大陆游客在了解中共迫害法轮功的真相。（良克霖/大纪元）
+集会期间下起了大雨，但中国大陆游客仍冒雨浏览揭露中共迫害法轮功的真相展板。（良克霖/大纪元）
 </div>
 <p>
 
