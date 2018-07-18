@@ -13,7 +13,7 @@
 
 
 <div align="center">
-<IMG SRC="wnn/img/18-0706-1.jpg" width=640>
+<IMG SRC="wnn/img/18-0716-1.jpg" width=640>
 </div>
 <p>
 
