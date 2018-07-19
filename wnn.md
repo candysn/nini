@@ -57,7 +57,7 @@
 <p>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0718-12.jpg" width=500>
+<IMG SRC="wnn/img/18-0718-12.jpg" width=640>
 </div>
 <div align="center">
 来自全国各地的部分法轮功学员于7月15日在京都的闹市区举行反迫害游行。（卢勇／大纪元） 
@@ -94,7 +94,7 @@
 森原颇为感慨地说，“我自己因法轮功受益，所以想让更多的人了解法轮功的真实情况，所以同大家一起来参加游行。”#
 
 <div align="center">
-<IMG SRC="wnn/img/18-0718-14.jpg" width=640>
+<IMG SRC="wnn/img/18-0718-14.jpg" width=500>
 </div>
 <div align="center">
 森原说，“我自己因法轮功受益，所以想让更多的人了解法轮功的真实情况。”（卢勇／大纪元）
