@@ -57,7 +57,7 @@
 <p>
 
 <div align="center">
-<IMG SRC="wnn/img/18-0718-12.jpg" width=640>
+<IMG SRC="wnn/img/18-0718-12.jpg" width=500>
 </div>
 <div align="center">
 来自全国各地的部分法轮功学员于7月15日在京都的闹市区举行反迫害游行。（卢勇／大纪元） 
@@ -78,7 +78,7 @@
 寺崎太表示，“今天参加游行，主要是想让更多的日本人了解法轮功，在炎热的天气下游行，的确是很辛苦，但能让更多的日本人知道法轮功，辛苦也值得。”
 
 <div align="center">
-<IMG SRC="wnn/img/18-0718-13.jpg" width=640>
+<IMG SRC="wnn/img/18-0718-13.jpg" width=500>
 </div>
 <div align="center">
 
