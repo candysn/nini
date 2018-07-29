@@ -7,17 +7,14 @@
 <h2 align="center"> (推荐)Reasily - EPUB 阅读器，可以观看视频、音频(Reasily1802h.apk) 。<br><a href="https://git.io/1802">点击直接下载</a></h2>
 <div align="center"><a href="https://git.io/01"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
 
+<h1 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>5月~7月看更多</a></b></h1>
+
 <hr>
 
-<h1 align="center"><b>拒放弃信仰 女经理遭中共用邪术咒语攻击
-</b></h1>
+<h1 align="center"><b>拒放弃信仰 女经理遭中共用邪术咒语攻击</b></h1>
 
-<div align="center">
-<IMG SRC="wnn/img/18-0721-1.jpg" width=640>
-</div>
-<div align="center">
-法轮功学员何志维。（何志维提供）</div>
-<p>
+<div align="center"><IMG SRC="wnn/img/18-0721-1.jpg" width=640></div>
+<div align="center">法轮功学员何志维。（何志维提供）</div><p>
 
 【大纪元2018年06月22日讯】（大纪元记者易如美国华盛顿DC报导）走在法轮功游行队列里的何志维，健康快乐，让人很难想到她曾遭受过中共多种酷刑的折磨，导致颈椎间盘突出。<p>
 
@@ -91,18 +88,11 @@
 
 <hr>
 
-<h1 align="center"><b>“道士律师”遇到真正的修炼
-</b></h1>
-<h2 align="center"><b>大韩法律救助公团水源支部李惇荣律师的故事
-</b></h2>
+<h1 align="center"><b>“道士律师”遇到真正的修炼</b></h1>
+<h2 align="center"><b>大韩法律救助公团水源支部李惇荣律师的故事</b></h2>
 
-<div align="center">
-<IMG SRC="wnn/img/18-0719-2.jpg" width=640>
-</div>
-<div align="center">
-李惇荣在读法轮大法书籍。（全景林/大纪元）
-</div>
-<p>
+<div align="center"><IMG SRC="wnn/img/18-0719-2.jpg" width=640></div>
+<div align="center">李惇荣在读法轮大法书籍。（全景林/大纪元）</div><p>
 
 【大纪元2018年07月12日讯】（大纪元记者赵润德韩国首尔采访报导）当今社会，在很多人的眼中，名誉、金钱和和睦的家庭就是幸福的全部了。然而，有时这些并不是幸福的最高尺度。韩国大韩法律救助公团水源支部的支部长李惇荣（54岁）律师说，他拥有了所有的这一切，但内心一直总是觉得很空虚。<p>
 
@@ -138,14 +128,8 @@
 
 对李惇荣来说，法轮功就像穿透黑暗的一缕阳光，为他的生活带来了光明和充实。为了与别人分享这一份喜悦，他每周都到韩国的青溪山炼功。伴随着潺潺的流水声和悠扬的炼功音乐，李惇荣静静地展示著炼功动作，而这一份宁静与平和吸引了很多前来登山的人，他们也纷纷走入修炼。
 
-<div align="center">
-<IMG SRC="wnn/img/18-0719-3.jpg" width=450>
-</div>
-<div align="center">
-
-李惇荣在炼法轮功第五套功法。（全景林／大纪元） 
-</div>
-<p>
+<div align="center"><IMG SRC="wnn/img/18-0719-3.jpg" width=450></div>
+<div align="center">李惇荣在炼法轮功第五套功法。（全景林／大纪元） </div><p>
 
 李惇荣是隶属法律救助公团的律师，有很多人来找他咨询法律问题，他会找机会给这些人讲述真相。告诉他们，法轮功由于其显著的功效迅速获得中国公民的喜爱，而独裁者却容不下一个教人向善的修炼功法，制造谎言并横加迫害二十年。对被谎言舆论欺瞒、不知实情的中国人，李惇荣会告诉他们真相，并劝他们退出共产党的相关组织。
 
