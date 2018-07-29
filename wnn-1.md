@@ -6,6 +6,8 @@
 <h2 align="center"> (推荐)Reasily - EPUB 阅读器，可以观看视频、音频(Reasily1802h.apk) 。<br><a href="https://git.io/1802">点击直接下载</a></h2>
 <div align="center"><a href="https://git.io/01"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
 
+<h1 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn.md">最新讯息<b></a></b></h1>
+
 <hr>
 
 <h1 align="center"><b>易蓉：中共因迫害法轮功 走向崩溃与解体
