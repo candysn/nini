@@ -13,7 +13,7 @@
 
   
 <hr>  
-<h1><b>中共對付老百姓的犯罪手段——監視 扣工資</b></h1>
+<h1 align="center"><b>中共對付老百姓的犯罪手段——監視 扣工資</b></h1>
 
 <div align="center">
 <IMG SRC="wnn/img/18-0806-1.jpg"width=640>
