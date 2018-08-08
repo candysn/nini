@@ -37,7 +37,7 @@ Frank Wolf 议员是美国《国际宗教自由法》的发起人，曾数次在
 
 7月27日，美国国际宗教自由委员会（USCIRF）副主席Kristina Arriaga在受访中建议美国政府应对中共强摘器官指控采取行动。“如果可信的报告发现了什么，那么美国政府应该对此进行调查。”
 
-<div align="center"><IMG SRC="wnn/img/18-0808-3.jpg" width=640></div><div align="center">美国国际宗教自由委员会（USCIRF）副主席Kristina Arriaga（USCIRF图片）</div><p>
+<div align="center"><IMG SRC="wnn/img/18-0808-3.jpg" width=550></div><div align="center">美国国际宗教自由委员会（USCIRF）副主席Kristina Arriaga（USCIRF图片）</div><p>
   
 美国在1998年通过《国际宗教自由法》，此后，成立了跨党派独立运作的联邦政府机构－－美国国际宗教自由委员会（USCIRF），监督各国的宗教自由状况。其建议在美国主流社会，被认为是评估宗教信仰自由方面的黄金标准。
 
