@@ -36,7 +36,7 @@
 
 <div align="center"><IMG SRC="wnn/img/18-0813-4.jpg"width=640></div><div align="center">图2：惠忆在中正纪念堂晨炼。</div><p>
 
-<div align="center"><IMG SRC="wnn/img/18-0813-5.jpg"width=640></div><div align="center">图3：惠忆表示，炼完功，整个经络都是舒展开的</div<p>
+<div align="center"><IMG SRC="wnn/img/18-0813-5.jpg" width=640></div><div align="center">图3：惠忆表示，炼完功，整个经络都是舒展开</div><p>
 
 从翻开宝书开始，惠忆就象走入了一方净土，真、善、忍的法理如同一股清流，浸润她枯槁已久的身心，原本药石罔效的病痛与对婆婆盘根错节的情绪，也在法轮大法的熔炼与修炼实践中，慢慢消失无踪。
 
