@@ -11,7 +11,7 @@
 
 
 <hr>
-<h1 align="center"><b>丹麥警方認錯 法輪功學員每人可獲賠三千多美元</b></h1>
+<h1 align="center"><b>丹麦警方认错 法轮功学员每人可获赔三千多美元</b></h1>
 
 <div align="center"><IMG SRC="wnn/img/18-0904-1.jpg" width=640></div><div align="center">2012年6月，丹麦和北欧法轮功学员呼吁中国停止迫害法轮功。</div><p>
 
@@ -54,14 +54,14 @@
 
 曾经在中国大陆因为坚持法轮功信仰而被中共当局非法监禁三年半的鲍女士表示，她感谢丹麦政府接纳了她，她非常珍惜在丹麦获得信仰自由的权利，但是她也说到：“我万万没有想到，中共的魔爪伸向了丹麦。我非常想告诉丹麦政府和人民，中共是在全世界渗透的，它用经济手段来胁迫每个国家，我希望丹麦政府能够认清它的真面目，不要受它摆布从而破坏了自己国家的立国之本。”
 
-<div align="center"><IMG SRC="wnn/img/18-0904-4.jpg" width=640></div><div align="center">将丹麦警方告上法庭的法轮功学员鲍女士。(图片来自丹麦法轮功学员)</div><p>
+<div align="center"><IMG SRC="wnn/img/18-0904-4.jpg" width=500></div><div align="center">将丹麦警方告上法庭的法轮功学员鲍女士。(图片来自丹麦法轮功学员)</div><p>
 
 
 <b>丹麦国会议员：这是丹麦的耻辱！决不会再发生！</b>
 
 丹麦人民党外交发言人艾斯普森(Søren Espersen)先生说：“我不相信普通警员会自己去做这样违法的事情，他们是被告知要这么做的。在丹麦发生这样的事情，这是丹麦的耻辱！”
 
-<div align="center"><IMG SRC="wnn/img/18-0904-5.jpg" width=640></div><div align="center">丹麦人民党外交发言人艾斯普森（Søren Espersen）先生。(明慧网图片) </div><p>
+<div align="center"><IMG SRC="wnn/img/18-0904-5.jpg" width=460></div><div align="center">丹麦人民党外交发言人艾斯普森（Søren Espersen）先生。(明慧网图片) </div><p>
 
 丹麦保守党议员本柯（Tom Behnke）先生质疑道：“20个不同的街头执勤警察每个人都想到了做同样的事，这难道是巧合？还是因为上层的策略有这样的倾向？”
 
@@ -69,7 +69,7 @@
 
 丹麦人民党议员拜特（Kenneth Kristensen Berth）先生也表示，该案让大家真正看到了言论自由的可贵。他说：“我认为，我们会更加认识到言论自由是多么珍贵和重要，它实际上是不能够被干涉的。我想曾经发生的这一幕在丹麦绝不会重演。如果中共现任主席访问丹麦，你不会看到同样的情形再次发生！”
 
-<div align="center"><IMG SRC="wnn/img/18-0904-6.jpg" width=640></div><div align="center">丹麦国会议员拜特（Kenneth Kristensen Berth） 先生。(明慧网图片) </div><p>
+<div align="center"><IMG SRC="wnn/img/18-0904-6.jpg" width=460></div><div align="center">丹麦国会议员拜特（Kenneth Kristensen Berth） 先生。(明慧网图片) </div><p>
 
 <b>律师：从未见过如此轰动全丹麦的大案</b>
 
