@@ -14,7 +14,7 @@
 <hr>
 <h1 align="center"><b>曾經的少年才子找到了中國的希望</b></h1>  
 
-<div align="center"><IMG SRC="wnn/img/18-0829-2.jpg" width=640></div><div align="center">陈师众在接受新唐人电视台记者采访</div><p>
+<div align="center"><IMG SRC="wnn/img/18-0829-2.jpg" width=550></div><div align="center">陈师众在接受新唐人电视台记者采访</div><p>
 
 【希望之声2017年8月7日】（本台记者慧光综合报导）陈师众是中国科技大学第一届少年班的尖子生，1980年，不到20岁的他就通过中美联合生物学考试，成为第一批赴美研究生，之后就读于康奈尔大学与加州大学圣地亚哥分校取得生物学博士。<p>
 
