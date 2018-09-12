@@ -73,7 +73,7 @@
 <hr>
 <h1 align="center"><b>千里伸冤慈母心</b></h1>
 
-<div align="center"><IMG SRC="wnn/img/18-0910-7.jpg" width=640></div><div align="center">张树德是村里唯一读过研究生的人，被诬判7年后，其母不远千里到锦州找相关单位、人员伸冤。（明慧网）</div><p>
+<div align="center"><IMG SRC="wnn/img/18-0910-7.jpg" width=500></div><div align="center">张树德是村里唯一读过研究生的人，被诬判7年后，其母不远千里到锦州找相关单位、人员伸冤。（明慧网）</div><p>
 
 【大纪元2018年09月08日讯】他是村里唯一读过研究生的人，毕业于哈尔滨工业大学，四年前应聘到辽宁省大连理工设计院，后被外派到盘锦市高新技术产业开发区工作。<p>
 
