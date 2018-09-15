@@ -53,7 +53,7 @@
 <hr>
 <h1 align="center"><b>千百度：修大法让她眼睛亮了驼背也直了</b></h1>
 
-<div align="center"><IMG SRC="wnn/img/18-0910-6.jpg" width=640></div><div align="center">她按照大法真、善、忍的标准修心炼功，放下名利，看淡亲情，努力修出对众生的慈悲，全身的病陆陆续续都不翼而飞了。（大纪元</div><p>
+<div align="center"><IMG SRC="wnn/img/18-0910-6.jpg" width=640></div><div align="center">她按照大法真、善、忍的标准修心炼功，放下名利，看淡亲情，努力修出对众生的慈悲，全身的病陆陆续续都不翼而飞了。（大纪元)</div><p>
  
  【大纪元2018年08月31日讯】这是一位四川农村妇女修炼法轮大法的传奇故事。
 
