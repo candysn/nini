@@ -14,12 +14,12 @@
 <hr>
 <h1 align="center"><b>越南金融界高官的意外发现</b></h1>
 
-<div align="center"><IMG SRC="wnn/img/18-0915-5.jpg" width=640></div><div align="center">南永福省发展投资基金和信用担保部副主任安（Phung Anh Viet）先生</div><p>
+<div align="center"><IMG SRC="wnn/img/18-0915-5.jpg" width=550></div><div align="center">南永福省发展投资基金和信用担保部副主任安（Phung Anh Viet）先生</div><p>
 
 
 【希望之声2018年9月12日】（本台记者慧光综合报导）安（Phung Anh Viet）先生是越南人，毕业于河内理工大学工商管理专业，目前是永福省发展投资基金和信用担保部副主任。他有一位贤惠的夫人和一双儿女，家庭生活幸福美满。然而，他心爱的女儿在十岁那年，却突然发现患有严重的血液病，这让他心急如焚，他不得不多次带孩子到国家最好的血液病医院进行抢救。<p>
 
-<div align="center"><IMG SRC="wnn/img/18-0915-6.jpg" width=640></div><div align="center">安（Phung Anh Viet）先生年轻时的全家合影</div><p>
+<div align="center"><IMG SRC="wnn/img/18-0915-6.jpg" width=500></div><div align="center">安（Phung Anh Viet）先生年轻时的全家合影</div><p>
 
 经过一年多的检查和治疗，效果依然不好。现代医学对此病几乎是无可奈何，医生在紧急情况下只能采用输血方式缓解症状，平时只能靠药物维持。可是该类药物有副作用，孩子变得非常虚弱。看着孩子萎靡不振的样子，别提他的心里有多难过了。
 
