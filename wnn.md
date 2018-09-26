@@ -15,7 +15,7 @@
 <hr>
 <h1 align="center"><b>印度整形外科专家三十多年的疾病一扫光</b></h1>
 
-<div align="center"><IMG SRC="wnn/img/18-0922-1.jpg" width=640></div><div align="center">印度加尔各答市整形外科专家库玛尔（Utpal Kumar）</div><p>
+<div align="center"><IMG SRC="wnn/img/18-0922-1.jpg" width=500></div><div align="center">印度加尔各答市整形外科专家库玛尔（Utpal Kumar）</div><p>
 
 【希望之声2018年9月16日】（本台记者慧光综合报导）库玛尔（Utpal Kumar）是印度人，是一名医学博士，已经六十岁了，他工作在印度加尔各答市最大的医院，是该院整形外科的专家和负责人。在医学领域他已经辛苦工作三十三年，取得了很多成绩，有很多建树，收入也颇为丰厚，但是面对自己的健康问题却一筹莫展。能为别人治病却治不了自己的病，这大概是每一个医生都无法回避的现实问题。<p>
 
