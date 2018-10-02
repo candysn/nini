@@ -12,7 +12,7 @@
  
 
 <hr>
-<h1 align="center"><b>让人生绽放不一样的光彩——印度时尚界年轻摄影师走入修炼【音频】</b></h1>
+<h1 align="center"><b>让人生绽放不一样的光彩——印度时尚界年轻摄影师走入修炼</b></h1>
 
 <div align="center"><IMG SRC="wnn/img/18-1003-1.jpg"width=640></div><div align="center">查克拉巴蒂（Adhiraj Chakrabarti）在阅读英文版《转法轮》</div><p>
  
@@ -30,13 +30,13 @@
 
 2014年，他的合作伙伴向他介绍了法轮功，随后他认真阅读了法轮功的主要指导书《转法轮》，他说：“法轮大法的法理非常深刻，我在人生中所有的疑惑都在这本书里找到了答案。也有很多内容我不能理解，但‘真、善、忍’的原则我非常认同，这就是我应该追求的目标。我很高兴，因为当我按照‘真、善、忍’的法理去实践的时候，我感到内心很充实。同时他也给我勇气，我可以用灿烂的笑容面对生活中的所有困难。”
 
-<div align="center"><IMG SRC="wnn/img/18-1003-3.jpg"width=550></div><div align="center">图2 查克拉巴蒂（Adhiraj Chakrabarti）在炼法轮功第五套功法 （图片：Gunita Stobe）</div><p>
+<div align="center"><IMG SRC="wnn/img/18-1003-3.jpg"width=600></div><div align="center">图2 查克拉巴蒂（Adhiraj Chakrabarti）在炼法轮功第五套功法 （图片：Gunita Stobe）</div><p>
 
 他是一个做事非常认真的人，开始修炼以后，坚持按照要求炼功，也让他亲身体验到了大法的美好和玄妙。
 
 他说：“我过去经常生病，坚持炼法轮功五套功法后，疾病就完全消失了。不仅如此，我感觉比以前更加精力充沛。有一个阶段，我的左脚出现问题，脚趾头莫名的疼痛，一个多月了都无法正常行走。但只要我开始阅读《转法轮》，疼痛感就消失了。当我把这本书完整的读完一遍后，我的左脚就完全恢复正常。我没有使用其它任何治疗方式，那个时候我就体会到这是一个奇迹！”
 
-<div align="center"><IMG SRC="wnn/img/18-1003-4.jpg"width=500></div><div align="center">图3 查克拉巴蒂（Adhiraj Chakrabarti）在炼法轮功第二套功法（图片：Mark Luburic）</div><p>
+<div align="center"><IMG SRC="wnn/img/18-1003-4.jpg"width=450></div><div align="center">图3 查克拉巴蒂（Adhiraj Chakrabarti）在炼法轮功第二套功法（图片：Mark Luburic）</div><p>
 
 他补充说：“还有一个更大的改变，就是我过去脾气暴躁，稍微遇到一些矛盾或冲突就没有耐心，而现在遇到同样的问题时，我会首先想到‘真、善、忍’，我会用修炼人的标准要求自己，矛盾很快就会化解。在法轮大法的指引下，我会经常的检讨自己，让自己做得越来越好。”
 
