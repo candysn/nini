@@ -2,7 +2,7 @@
 <a href="https://git.io/ffq"><IMG SRC="wnn/img/113.jpg" width=880></a></p>
 <hr>
 <IMG SRC="wnn/img/001.jpg"width=880></p>
-<div align=center>翻墙必看 视频http://220.141.123.94</div>
+<div align=center>直连不必翻墙 必看视频 http://220.141.123.94</div>
 
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/D-00.jpg" width=880></a></h1>
 <h1 align="center"><a href="https://github.com/3fmd/gm/blob/master/epub.md">免费下载epub电子书</a></h1>
