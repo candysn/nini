@@ -2,6 +2,7 @@
 <a href="https://git.io/ffq"><IMG SRC="wnn/img/113.jpg" width=880></a></p>
 <hr>
 <IMG SRC="wnn/img/001.jpg"width=880></p>
+
 <div align=center>直连不必翻墙 必看视频 http://61.228.117.11</div>
 
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/D-00.jpg" width=880></a></h1>
