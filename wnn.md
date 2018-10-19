@@ -17,7 +17,6 @@
 
 
 
-
 <hr>
 <h1 align="center"><b>“护身符”里乾坤大，“九字真言”有玄机</b></h1>
 <div align="center"><IMG SRC="wnn/img/18-1018-2.jpg"width=640></div><div align="center">一位年轻女性正在观看法轮功的“护身符”</div><p>
