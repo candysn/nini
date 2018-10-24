@@ -6,10 +6,10 @@
 <div align=center>直连不必翻墙 必看视频 http://61.228.118.66</div>
 
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/D-00.jpg" width=880></a></h1>
- <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
+<h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
- <div align="center"><a href="https://git.io/01"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
+<div align="center"><a href="https://git.io/01"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>5月~8月看更多</a></b></h1>
  
 
@@ -73,7 +73,7 @@
 
 回想往事，有时候感慨万千，似为偶然，却无不体现着师父的慈悲苦度，非常感谢师父！
  
- <hr>
+<hr>
 <h1 align="center"><b>修炼法轮功的著名科学家吴伟标博士</b></h1>
 <div align="center"><IMG SRC="wnn/img/18-1022-1.jpg"width=640></div><div align="center">美国芝加哥大学终身教授吴伟标博士</div><p>
  
