@@ -15,8 +15,8 @@
 
 
 
-<div align="center"><IMG SRC="wnn/img/aa119.jpg" width=640></div><p>
-<IMG SRC="wnn/img/aa119.jpg"width=880></p>
+<IMG SRC="wnn/img/aa118.jpg"width=880></p>
+
 <h1 align="center"><b>最顶级的心脏病专家如何治好自己的心脏病</b></h1>
 
 <div align="center"><IMG SRC="wnn/img/18-1106-2.jpg"width=640></div><div align="center">越南著名的心脏病专家黎博士（Le Thi Thanh Thai）在自己的办公室</div><p>
@@ -60,6 +60,8 @@
 
 <IMG SRC="wnn/img/aa125.jpg"width=880></p>
 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+ 
 <h1 align="center"><b>我懂得了什么是信仰</b></h1>
 
 <div align="center"><IMG SRC="wnn/img/18-1102-1.jpg"width=640></div><div align="center">这一刻，我依稀懂得了什么是信仰。我也感到困惑，人与人的差异怎会如此悬殊？示意图，与内文无关。</div><p>
