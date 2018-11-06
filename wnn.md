@@ -11,13 +11,13 @@
 
 <div align="center"><a href="https://git.io/01"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>5月~8月看更多</a></b></h1>
-<IMG SRC="wnn/img/aa117.jpg"width=880></p> 
+ 
 
 
 
 
 
-<hr>
+<IMG SRC="wnn/img/aa119.jpg"width=880></p>
 <h1 align="center"><b>我懂得了什么是信仰</b></h1>
 
 <div align="center"><IMG SRC="wnn/img/18-1102-1.jpg"width=640></div><div align="center">这一刻，我依稀懂得了什么是信仰。我也感到困惑，人与人的差异怎会如此悬殊？示意图，与内文无关。</div><p>
