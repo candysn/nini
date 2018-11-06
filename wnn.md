@@ -15,8 +15,8 @@
 
 
 
-
-<IMG SRC="wnn/img/aa1119.jpg"width=880></p>
+<div align="center"><IMG SRC="wnn/img/aa119.jpg" width=640></div><p>
+<IMG SRC="wnn/img/aa119.jpg"width=880></p>
 <h1 align="center"><b>最顶级的心脏病专家如何治好自己的心脏病</b></h1>
 
 <div align="center"><IMG SRC="wnn/img/18-1106-2.jpg"width=640></div><div align="center">越南著名的心脏病专家黎博士（Le Thi Thanh Thai）在自己的办公室</div><p>
