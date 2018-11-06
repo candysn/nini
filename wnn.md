@@ -14,8 +14,7 @@
  
 
 
-
-<IMG SRC="wnn/img/aa118.jpg"width=880></p>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 
 <h1 align="center"><b>最顶级的心脏病专家如何治好自己的心脏病</b></h1>
 
@@ -58,7 +57,6 @@
 她从新找回了自己，仍然是越南心血管行业的领先专家。她又开始充满活力，没有人从她的行为中能看出这是一位七十多岁的老太太。
 
 
-<IMG SRC="wnn/img/aa125.jpg"width=880></p>
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
  
