@@ -17,7 +17,7 @@
 
 
 
-<IMG SRC="wnn/img/aa119.jpg"width=880></p>
+<IMG SRC="wnn/img/aa125.jpg"width=880></p>
 <h1 align="center"><b>我懂得了什么是信仰</b></h1>
 
 <div align="center"><IMG SRC="wnn/img/18-1102-1.jpg"width=640></div><div align="center">这一刻，我依稀懂得了什么是信仰。我也感到困惑，人与人的差异怎会如此悬殊？示意图，与内文无关。</div><p>
