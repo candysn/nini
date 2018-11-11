@@ -17,6 +17,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h1 align="center"><b>加州华裔少年 画作屡获大奖凭哪般？</b></h1> 
 <h2 align="center"><b>从热爱打杀画面到金色光明的蜕变</b></h2>
