@@ -17,7 +17,7 @@
 
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
-<h2 align="center"><b>从悲苦人生中走出来的白领【音频】</b></h2>
+<h2 align="center"><b>从悲苦人生中走出来的白领</b></h2>
  
 <div align="center"><IMG SRC="wnn/img/18-1114-1.jpg"width=640></div><div align="center">法轮功学员在炼第五套功法——神通加持法（网络照片）</div><p> 
  
