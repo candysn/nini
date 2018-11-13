@@ -19,7 +19,7 @@
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>从悲苦人生中走出来的白领</b></h2>
  
-<div align="center"><IMG SRC="wnn/img/18-1114-1.jpg"width=640></div><div align="center">法轮功学员在炼第五套功法——神通加持法（网络照片）</div><p> 
+<div align="center"><IMG SRC="wnn/img/18-1113-1.jpg"width=640></div><div align="center">法轮功学员在炼第五套功法——神通加持法（网络照片）</div><p> 
  
  【希望之声2018年10月31日】（本台记者慧光综合报导）我是中国大陆湖北省的一名青年女性，目前在一家外企工作。我的老板曾对员工说，我是他遇到的最优秀的员工，高素质，是不可多得的一位好助手，以后不可能再碰到这样的员工了。<p>
 
