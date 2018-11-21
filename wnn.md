@@ -18,7 +18,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>揭中共活摘器官罪行 芬兰媒体大量报导</b></h2>
-<div align="center"><IMG SRC="wnn/img/18-1121-2.jpg"width=640></div><div align="center">2018年11月13日，在芬兰举行的研讨会上，人权调查记者及作家伊森·葛特曼（Ethan Gutmann）发言，揭露中共活摘法轮功学员器官的罪行。（明慧网）</div><p> 
+<div align="center"><IMG SRC="wnn/img/18-1121-2.jpg"width=550></div><div align="center">2018年11月13日，在芬兰举行的研讨会上，人权调查记者及作家伊森·葛特曼（Ethan Gutmann）发言，揭露中共活摘法轮功学员器官的罪行。（明慧网）</div><p> 
 
 【大纪元2018年11月16日讯】11月13日，芬兰首都赫尔辛基议会厅与芬兰议会人权网络合作，举办了揭露中共活摘法轮功学员器官的研讨会。芬兰主流媒体对该研讨会进行了大量报导。<p> 
 
@@ -30,11 +30,11 @@
 
 活动结束后，当天芬兰十一家网络媒体大量报导了研讨会，第二天在芬兰畅销全国具有最大影响力的报纸《赫尔辛基日报》（Helsingin Sanomat）、赫尔辛基的 《地铁报》（METRO）、覆盖坦佩雷地区的《早报》（Aamulehti）及 芬兰北部的《拉普人报》（Lapin Kansa）都刊登相关报导文章。
 
-<div align="center"><IMG SRC="wnn/img/18-1121-3.jpg"width=640></div><div align="center">芬兰畅销全国的影响力最大的报纸《赫尔辛基日报》刊登研讨会报导。（明慧网）</div><p> 
+<div align="center"><IMG SRC="wnn/img/18-1121-3.jpg"width=500></div><div align="center">芬兰畅销全国的影响力最大的报纸《赫尔辛基日报》刊登研讨会报导。（明慧网）</div><p> 
  
-<div align="center"><IMG SRC="wnn/img/18-1121-4.jpg"width=640></div><div align="center">覆盖坦佩雷地区的《早报》刊登研讨会报导。（明慧网）</div><p> 
+<div align="center"><IMG SRC="wnn/img/18-1121-4.jpg"width=500></div><div align="center">覆盖坦佩雷地区的《早报》刊登研讨会报导。（明慧网）</div><p> 
 
-<div align="center"><IMG SRC="wnn/img/18-1121-5.jpg"width=640></div><div align="center">赫尔辛基的 《地铁报》刊登研讨会报导。（明慧网）</div><p> 
+<div align="center"><IMG SRC="wnn/img/18-1121-5.jpg"width=500></div><div align="center">赫尔辛基的 《地铁报》刊登研讨会报导。（明慧网）</div><p> 
 
 人权调查记者、作家葛特曼先生在近一个小时的演讲中，详细介绍了他与加拿大前亚太司司长大卫·乔高（David Kilgour）和加拿大人权律师大卫·麦塔斯（David Matas）通过共同的独立调查所收集到的法轮功学员被活摘器官的确凿证据，并讲述了在中共政权下早就有利用政治犯的活体器官为中共高官进行器官移植的做法。
 
