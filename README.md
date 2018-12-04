@@ -1,2 +1,2 @@
 <div align="center"><a href="https://git.io/01"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
-<div align=center><b>直连不必翻墙 必看视频</b> http://36.227.98.168</div>  
+<div align=center><b>直连不必翻墙 必看视频</b> http://111.241.94.74/</div>  
