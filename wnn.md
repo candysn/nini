@@ -20,7 +20,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>天空出现“真善忍” 西澳女子圆梦</b></h2>
- <div align="center"><IMG SRC="wnn/img/圖片XXX.jpg"width=640></div><div align="center">2018年12月2日，这架飞机带着写有“BE TRUE. BE KIND. ENDURE-FALUN GONG”的横幅，沿着西澳海岸线从南飞到北，历时3小时。（Brian Collingridge提供）</div><p>
+ <div align="center"><IMG SRC="wnn/img/18-1204-1.jpg"width=640></div><div align="center">2018年12月2日，这架飞机带着写有“BE TRUE. BE KIND. ENDURE-FALUN GONG”的横幅，沿着西澳海岸线从南飞到北，历时3小时。（Brian Collingridge提供）</div><p>
 
 【大纪元2018年12月04日讯】（大纪元记者周鑫澳洲珀斯报导）周日（12月2日）早9点45分，西澳珀斯的科斯特洛海滩（Cottesloe Beach），3岁的奥兰多（Orlando）在沙滩上姗姗而行，突然，他看到一架飞机，后面拖着一条长长的尾巴。“飞机！”他向爸爸妈妈喊道，手指向天空。<p>
 
