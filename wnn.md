@@ -20,7 +20,8 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>天空出现“真善忍” 西澳女子圆梦</b></h2>
- <div align="center"><IMG SRC="wnn/img/18-1204-1.jpg"width=640></div><div align="center">2018年12月2日，这架飞机带着写有“BE TRUE. BE KIND. ENDURE-FALUN GONG”的横幅，沿着西澳海岸线从南飞到北，历时3小时。（Brian Collingridge提供）</div><p>
+ 
+<div align="center"><IMG SRC="wnn/img/18-1205-1.jpg"width=640></div><div align="center">2018年12月2日，这架飞机带着写有“BE TRUE. BE KIND. ENDURE-FALUN GONG”的横幅，沿着西澳海岸线从南飞到北，历时3小时。（Brian Collingridge提供）</div><p>
 
 【大纪元2018年12月04日讯】（大纪元记者周鑫澳洲珀斯报导）周日（12月2日）早9点45分，西澳珀斯的科斯特洛海滩（Cottesloe Beach），3岁的奥兰多（Orlando）在沙滩上姗姗而行，突然，他看到一架飞机，后面拖着一条长长的尾巴。“飞机！”他向爸爸妈妈喊道，手指向天空。<p>
 
@@ -32,7 +33,7 @@
 
 一个月前，唐斯科姆开始筹划这件事，但真正促成这件事的却是3年前的一连串神奇的梦。
 
-<div align="center"><IMG SRC="wnn/img/18-1204-2.jpg"width=640></div><div align="center">2018年12月2日，唐斯科姆（Karen Dunscombe，右一）租飞机拖着“BE TRUE. BE KIND. ENDURE-FALUN GONG”横幅，沿着西澳海岸线从南飞到北。特拉维斯（Travers）夫妇（左一、右二）认为唐斯科姆做了件好事。（周鑫／大纪元）</div><p>
+<div align="center"><IMG SRC="wnn/img/18-1205-2.jpg"width=640></div><div align="center">2018年12月2日，唐斯科姆（Karen Dunscombe，右一）租飞机拖着“BE TRUE. BE KIND. ENDURE-FALUN GONG”横幅，沿着西澳海岸线从南飞到北。特拉维斯（Travers）夫妇（左一、右二）认为唐斯科姆做了件好事。（周鑫／大纪元）</div><p>
 
 <b>一连串神奇的梦 终与现实交接</b>
 
@@ -52,7 +53,7 @@
 
 唐斯科姆决定租1小时的飞机，横幅上写“BE TRUE. BE KIND. ENDURE-FALUN GONG”。
 
-<div align="center"><IMG SRC="wnn/img/18-1204-3.jpg"width=640></div><div align="center">飞机在科斯特洛海滩（Cottesloe Beach）上空盘旋。（周鑫／大纪元）</div><p>
+<div align="center"><IMG SRC="wnn/img/18-1205-3.jpg"width=640></div><div align="center">飞机在科斯特洛海滩（Cottesloe Beach）上空盘旋。（周鑫／大纪元）</div><p>
 
 <b>家人与广告商都支持她</b>
 
@@ -68,7 +69,7 @@
 
 从Rockingham开始，飞机沿海岸线一路向北，途径科斯特洛海滩时，科林瑞奇让飞机在此低空徘徊3圈，以便更多人看到横幅上的文字信息。
 
-<div align="center"><IMG SRC="wnn/img/18-1204-4.jpg"width=640></div><div align="center">飞机飞行路线示意图。飞机从珀斯南部的 Jandakot机场出发，往西北飞行，经过Bibra Lake区的探险世界（Adventure World）主题公园和弗里曼特尔市（Fremantle）的E-Shed市场，然后折转向南，飞到Rockingham市。从Rockingham开始，飞机沿海岸线一路向北，途经科斯特洛海滩时，科林瑞奇让飞机在此低空徘徊3圈。（大纪元周鑫制作）</div><p>
+<div align="center"><IMG SRC="wnn/img/18-1205-4.jpg"width=640></div><div align="center">飞机飞行路线示意图。飞机从珀斯南部的 Jandakot机场出发，往西北飞行，经过Bibra Lake区的探险世界（Adventure World）主题公园和弗里曼特尔市（Fremantle）的E-Shed市场，然后折转向南，飞到Rockingham市。从Rockingham开始，飞机沿海岸线一路向北，途经科斯特洛海滩时，科林瑞奇让飞机在此低空徘徊3圈。（大纪元周鑫制作）</div><p>
 
 <b>回馈法轮功 带给人正面体验</b>
 
