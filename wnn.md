@@ -19,9 +19,9 @@
 
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
-<h2 align="center"><b>政法委610是迫害法轮功的罪魁祸首</b></h2>
+<h2 align="center"><b>一位白血病患者的奇愈历程</b></h2>
  
-<div align="center"><IMG SRC="wnn/img/圖18-1211-1.jpg"width=640></div><div align="center">法轮功学员在炼第五套功法"神通加持法“（网络照片）
+<div align="center"><IMG SRC="wnn/img/18-1211-1.jpg"width=640></div><div align="center">法轮功学员在炼第五套功法"神通加持法“（网络照片）
 </div><p>
  
 【希望之声2018年12月8日】（本台记者慧光综合报导）我出生在中国大陆北方的一座小城市，是一名普通的女性。2005年，我在一家外资企业工作，在车间里做主管。那时我才二十多岁，工作如意，家庭和睦，丈夫买了一辆小型货车干出租，儿子上幼儿园，我事事顺心，是个让别人羡慕的人。<p>
