@@ -18,6 +18,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>说说我的“平凡”人生——一位“高工”的心里话</b></h2>
 
