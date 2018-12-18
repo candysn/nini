@@ -30,7 +30,7 @@
 
 <b>美国著名物理学家：被带入了古老的时间长河</b>
 
-<div align="center"><IMG SRC="wnn/img/18-1218-2.jpg"width=640></div><div align="center">2018年12月16日下午，加州大学伯克利分校物理系教授Richard Muller与家人一起观赏了神韵今年在当地的最后一场演出。（周容／大纪元）</div><p>
+<div align="center"><IMG SRC="wnn/img/18-1218-2.jpg"width=550></div><div align="center">2018年12月16日下午，加州大学伯克利分校物理系教授Richard Muller与家人一起观赏了神韵今年在当地的最后一场演出。（周容／大纪元）</div><p>
 
 12月16日下午，加州大学伯克利分校物理系教授Richard Muller与家人观赏了神韵的最后一场演出。他赞叹道：“这是一个奇妙之旅，我从未见过这么美的演出。”
 
@@ -46,7 +46,7 @@ Richard Muller是美国著名物理家，加州大学伯克利分校物理系教
 
 <b>美国著名生物学家：壮丽非凡的演出</b>
 
-<div align="center"><IMG SRC="wnn/img/18-1218-3.jpg"width=640></div><div align="center">2018年12月16日下午，伯克利大学分子和细胞生物学教授Michael Eisen带着家人一起观赏了神韵纽约艺术团今年在当地的最后一场演出。（麦蕾／大纪元）</div><p>
+<div align="center"><IMG SRC="wnn/img/18-1218-3.jpg"width=550></div><div align="center">2018年12月16日下午，伯克利大学分子和细胞生物学教授Michael Eisen带着家人一起观赏了神韵纽约艺术团今年在当地的最后一场演出。（麦蕾／大纪元）</div><p>
  
 刚刚观赏过演出的Michael Eisen先生称赞：“我完全被神韵演员的才华所震撼，他们居然可以头顶着罐子起舞！太不可思议了！”他说自己完全能想像到神韵演员为此而付出的巨大艰苦努力。
 
