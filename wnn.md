@@ -21,7 +21,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>留学法国的越南女硕士的故事</b></h2>
-<div align="center"><IMG SRC="wnn/img/18-223-1.jpg"width=640></div><div align="center">在法国攻读光学和纳米技术专业硕士学位的漂亮女孩Bao Tram。</div><p> 
+<div align="center"><IMG SRC="wnn/img/18-1223-1.jpg"width=640></div><div align="center">在法国攻读光学和纳米技术专业硕士学位的漂亮女孩Bao Tram。</div><p> 
 
 【希望之声2018年12月20日】（本台记者慧光综合报导）Bao Tram是一位非常聪明的越南女孩，目前在法国特鲁瓦市攻读光学和纳米技术专业硕士学位。<p>
 
