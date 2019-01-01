@@ -19,7 +19,7 @@
 
 
 
-<div align="center"><IMG SRC="wnn/img/aa124.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/aa130.jpg" width=880></div><p>
 <h2 align="center"><b>“怪病”缠身何以解脱？——记走出人生困境的台湾父女（女儿篇）</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-0101-2.jpg"width=640></div><div align="center">台湾商人陈昱炽和女儿陈玟君</div><p>
  
