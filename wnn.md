@@ -20,6 +20,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa124.jpg" width=880></div><p>
 <h2 align="center"><b>一位大陆企业总经理的感恩</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-0103-1.jpg"width=640></div><div align="center">苦海中历经沧桑 有新生莫忘感恩</div><p>
