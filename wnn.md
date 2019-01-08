@@ -22,7 +22,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa124.jpg" width=880></div><p>
 <h2 align="center"><b>“才女“天骄”分享: 奇书伴我成长</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-108-1.jpg"width=640></div><div align="center">天骄</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0108-1.jpg"width=640></div><div align="center">天骄</div><p>
 
 【新唐人2019年01月04日讯】东北女孩王天娇，出生于一个书香门第。父亲因为“望女成凤”，给女儿起名“天骄”。王天娇也没有辜负父母的期望，不但以优异成绩考入清华大学，毕业后又取得了美国顶尖公立大学——维吉尼亚大学的MBA硕士学位。目前王天娇在美国最大的汽车集团公司担任投资分析师一职，可谓年轻有为。对此，王天娇表示，她的成功，离不开一本神奇的书。<p>
 
