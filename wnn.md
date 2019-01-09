@@ -17,6 +17,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa124.jpg" width=880></div><p>
 <h2 align="center"><b>“生化科学家：《转法轮》讲的是真的</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0109-1.jpg"width=640></div><div align="center">陈力</div><p>
