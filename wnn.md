@@ -3,7 +3,7 @@
 <hr>
 <IMG SRC="wnn/img/001.jpg"width=880></p>
 
-<div align=center><b>直连不必翻墙 必看视频 http://220.141.127.117/ </b></div>
+<div align=center><b>直连不必翻墙 必看视频 http://220.141.135.53/ </b></div>
 
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/D-00.jpg" width=880></a></h1>
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
@@ -12,6 +12,9 @@
 <div align="center"><a href="https://git.io/01"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>5月~8月看更多</a></b></h1>
  
+
+
+
 
 
 
