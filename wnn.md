@@ -16,6 +16,8 @@
 
 
 
+
+
 <div align="center"><IMG SRC="wnn/img/aa124.jpg" width=880></div><p>
 <h2 align="center"><b>电脑工程师的“求道”故事</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0115-1.jpg"width=640></div><div align="center">张羽博</div><p>
