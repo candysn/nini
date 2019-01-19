@@ -19,7 +19,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa124.jpg" width=880></div><p>
 <h2 align="center"><b>神奇屡现引领我迷途知返——一位出租车司机的故事</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0119-1.jpg"width=550></div><div align="center">法轮功学员在炼第五套功法——神通加持法（网络照片）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0119-1.jpg"width=570></div><div align="center">法轮功学员在炼第五套功法——神通加持法（网络照片）</div><p>
 
 【希望之声2019年1月16日】（本台记者慧光综合报导）我是中国大陆山东人，在省会城市济南开出租车多年，已经五十多岁了。<p>
 
