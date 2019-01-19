@@ -18,9 +18,8 @@
 
 
 <div align="center"><IMG SRC="wnn/img/aa124.jpg" width=880></div><p>
-<h2 align="center"><b>神奇屡现引领我迷途知返——一位出租车司机的故事
-http://www.soundofhope.org/gb/2019/01/16/n2571847.html</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0119-1.jpg"width=640></div><div align="center">法轮功学员在炼第五套功法——神通加持法（网络照片）</div><p>
+<h2 align="center"><b>神奇屡现引领我迷途知返——一位出租车司机的故事</b></h2> 
+<div align="center"><IMG SRC="wnn/img/19-0119-1.jpg"width=550></div><div align="center">法轮功学员在炼第五套功法——神通加持法（网络照片）</div><p>
 
 【希望之声2019年1月16日】（本台记者慧光综合报导）我是中国大陆山东人，在省会城市济南开出租车多年，已经五十多岁了。<p>
 
@@ -59,8 +58,6 @@ http://www.soundofhope.org/gb/2019/01/16/n2571847.html</b></h2>
 如今我已经修炼十几年了，身体上的变化是显而易见的，不仅身体越来越强壮，而且皮肤变的光滑细嫩，头发也变黑了，仿佛年轻了十几岁。
 
 我今天把自己的亲身经历说出来，就是想说：我曾经身犯大错尚能得到师父的原谅和看护，还在迷中的人啊，你还在等待什么呢？！
-
-
 
 <div align="center"><IMG SRC="wnn/img/aa124.jpg" width=880></div><p>
 <h2 align="center"><b>中共要求学校举报有信仰的学生及家长</b></h2> 
