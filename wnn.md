@@ -9,8 +9,8 @@
 <h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
 <div align="center"><a href="https://git.io/01"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
-<h1 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>5月~8月看更多</a></b></h1>
- <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-2.md"><b>2108年9月~12月, 看更多</a></b></h1>
+<h2 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>5月~8月看更多</a></b></h2>
+ <h2 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-2.md"><b>2108年9月~12月, 看更多</a></b></h2>
 
 
 
