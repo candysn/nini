@@ -20,7 +20,7 @@
 
 
 
-<div align="center"><IMG SRC="wnn/img/aa113.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>十八年前天安门的一把火　《焦点访谈》事先知情吗？</b></h2> 
  
 【明慧网二零一九年一月十九日】二零零一年一月二十三日除夕，在天安门广场发生了一起震惊中外的自焚事件，新华社马上发稿栽赃法轮功。七天之后，即一月三十日央视《焦点访谈》播出了自焚节目来进一步煽动仇恨。自焚录像有一些事发现场的特写镜头。这些画面是谁录制的呢？<p>
@@ -73,7 +73,7 @@
 
 《焦点访谈》预先知情说明了什么？残害人命，谎言洗脑，证明了中共才是真正的最大的邪教。
 
-<div align="center"><IMG SRC="wnn/img/aa124.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>耄耋老人的回忆：血溅厅堂遇奇人 颠覆人生犹重生</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0122-1.jpg"width=570></div><div align="center">“神奇——神之奇也！”（网络照片）</div><p>
  
@@ -115,7 +115,7 @@
 
 每当回想这些往事，我都有无限感慨。我的一身难治之症，不用打针，不用吃药，不用开刀，不用受苦，没花一分钱，就这么一边看书、一边炼功，一边修炼心性，就把压在身上的“三座大山”神奇般的搬走了。我从内心里彻底信服了——法轮大法才是真正超常的科学！
 
-<div align="center"><IMG SRC="wnn/img/aa124.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>神奇屡现引领我迷途知返——一位出租车司机的故事</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0119-1.jpg"width=570></div><div align="center">法轮功学员在炼第五套功法——神通加持法（网络照片）</div><p>
  
@@ -157,7 +157,7 @@
 
 我今天把自己的亲身经历说出来，就是想说：我曾经身犯大错尚能得到师父的原谅和看护，还在迷中的人啊，你还在等待什么呢？！
 
-<div align="center"><IMG SRC="wnn/img/aa124.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>中共要求学校举报有信仰的学生及家长</b></h2> 
  
 【明慧网二零一九年一月十七日】自由亚洲电台（RFA）一月十一日报导，中国高等院校应中共当局指示，去年开始在中小学加强灌输“无神论”思想，学校将有宗教信仰的学生上报安全部门，并以奖金、零食，鼓励学生举报揭发信教的父母或相互举报。在共产党统治下，中国早已无“宗教自由”容身之地，如今更深入校园荼毒民族幼苗，摧残学生心灵，令人引以为忧。<p>
