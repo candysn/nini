@@ -19,6 +19,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa113.jpg" width=880></div><p>
 <h2 align="center"><b>十八年前天安门的一把火　《焦点访谈》事先知情吗？</b></h2> 
  
