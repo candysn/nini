@@ -40,7 +40,7 @@
 
 斯维特拉娜·季谢列娃（Svetlana Kiseleva）炼法轮功已有九年了，她是一名教师，虽然年近半百，仍然容光焕发。她的一天总是从炼法轮功的静功开始。
 
-<div align="center"><IMG SRC="wnn/img/19-0201-2.jpg"width=640></div><div align="center">季谢列娃的一天总是从炼法轮功的静功开始。（视频截图）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0202-2.jpg"width=640></div><div align="center">季谢列娃的一天总是从炼法轮功的静功开始。（视频截图）</div><p>
  
 季谢列娃说：“秋冬两季是流感高发期，许多同事因此上不了班，请我帮忙代课。同事们也想知道为什么我这么年轻，我就告诉他们‘因为我修炼法轮功’。”
 
