@@ -20,7 +20,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>受益于法轮功 韩国消防尉走出职业困境</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0204-4.jpg"width=520></div><div align="center">姜贞玉感慨地说，“我因修炼法轮功，不仅令职业病引发的疾患消失殆尽，家庭也和睦了。”（姜贞玉提供）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0204-4.jpg"width=640></div><div align="center">姜贞玉感慨地说，“我因修炼法轮功，不仅令职业病引发的疾患消失殆尽，家庭也和睦了。”（姜贞玉提供）</div><p>
  
 【大纪元2019年02月01日讯】（大纪元记者金攸俐韩国采访报导）现代人生活在巨大的压力中，身体疲劳、精神疲劳让很多上班族一筹莫展。而投身事故现场、挽救生命财产的消防员更是生活在极度的紧张之中，和一般人相比，不仅要忍受各种疾病的苦楚，心理疾病也伴随而来。<p>
 
@@ -107,7 +107,7 @@
 
 一位女士跟学员很长的交谈，她告诉说她在学习瑜伽，对打坐很感兴趣。学员告诉她修炼法轮大法让好多人身心受益。她高兴地表示想学炼法轮功。当她看到“真善忍”三个字时，她说：“这是非常好的原则，非常棒。”提到中共对法轮功的迫害，她直接走到展桌前，在制止迫害请愿书上签名。
 
-<div align="center"><IMG SRC="wnn/img/19-0204-3.jpg"width=640></div><div align="center">欧盟议员佩特里•萨瓦玛（Petri Sarvamaa）在制止迫害请愿书上签字。</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0204-3.jpg"width=580></div><div align="center">欧盟议员佩特里•萨瓦玛（Petri Sarvamaa）在制止迫害请愿书上签字。</div><p>
 
 两天的活动除了教育界人士前来参加外，也有各党派的官员。法轮功学员也向他们介绍了法轮功，及其迫害的真相。欧盟议员佩特里•萨瓦玛（Petri Sarvamaa）在制止迫害请愿书上签名。
 
