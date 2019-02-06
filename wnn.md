@@ -19,7 +19,7 @@
 
 
 
-<div align="center"><IMG SRC="wnn/img/bb003.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/bb001.jpg" width=880></div><p>
 <h2 align="center"><b>受益于法轮功 韩国消防尉走出职业困境</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0204-4.jpg"width=640></div><div align="center">姜贞玉感慨地说，“我因修炼法轮功，不仅令职业病引发的疾患消失殆尽，家庭也和睦了。”（姜贞玉提供）</div><p>
  
