@@ -19,8 +19,8 @@
 
 
 <div align="center"><IMG SRC="wnn/img/bb003.jpg" width=880></div><p>
-<h2 align="center"><b>民难不已：69法轮功学员去年被迫害死</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0212-2.jpg"width=500></div><div align="center">2018年被中共迫害离世的部分法轮功学员</div><p>
+<h2 align="center"><b>生命垂危有奇迹 死而复生话感恩</b></h2> 
+<div align="center"><IMG SRC="wnn/img/19-0212-2.jpg"width=640></div><div align="center">生命奇迹寻常见 每逢佳节话感恩</div><p>
 
 【希望之声2019年2月4日】（本台记者慧光综合报导）我生活在中国大陆北方的一个小县城，是一名普通女性，也曾经是机关的一名职员。1997年我开始修炼法轮功，修炼后亲身体验到了大法的很多神奇，但最让我刻骨铭心的是发生在我丈夫身上的两次奇迹。<p>
 
