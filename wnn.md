@@ -22,7 +22,7 @@
 
 <div align="center"><IMG SRC="wnn/img/bb003.jpg" width=880></div><p>
 <h2 align="center"><b>民难不已：69法轮功学员去年被迫害死</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0212-1.jpg"width=640></div><div align="center">2018年被中共迫害离世的部分法轮功学员</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0212-1.jpg"width=500></div><div align="center">2018年被中共迫害离世的部分法轮功学员</div><p>
 
 【新唐人2019年02月11日讯】中共对法轮功学员的残酷迫害仍然在继续。据“法轮大法明慧网”统计，去年（2018年）一年，至少有69名法轮功学员被中共迫害致死。外界评论指出，中共不死，民难不已。另一方面，法轮功学员对善良、信念的坚守，恰恰是人类的精神所在。<p>
 
