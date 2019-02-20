@@ -19,6 +19,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/bb003.jpg" width=880></div><p>
 <h2 align="center"><b>与一本东方修炼之书结缘 西方女子走出抑郁</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0220-1.jpg"width=640></div><div align="center">丹妮拉（Daniela）出生在罗马尼亚。二十多年前，她来到德国，结婚生子，并在慕尼黑定居下来。（本人提供）</div><p>
