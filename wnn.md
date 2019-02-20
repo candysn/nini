@@ -22,7 +22,7 @@
 
 <div align="center"><IMG SRC="wnn/img/bb003.jpg" width=880></div><p>
 <h2 align="center"><b>与一本东方修炼之书结缘 西方女子走出抑郁</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0220-1.jpg"width=640></div><div align="center">丹妮拉（Daniela）出生在罗马尼亚。二十多年前，她来到德国，结婚生子，并在慕尼黑定居下来。（本人提供）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0220-1.jpg"width=580></div><div align="center">丹妮拉（Daniela）出生在罗马尼亚。二十多年前，她来到德国，结婚生子，并在慕尼黑定居下来。（本人提供）</div><p>
  
 【大纪元2019年02月18日讯】（大纪元记者祝兰德国报导）有这么一本中文书，被翻译成四十余种语言，其理论和功法曾风靡中国大陆，为上亿人所称颂、信仰。一位罗马尼亚女子，在书中找到了对人生一切疑问的答案，并从此走上修炼之路。<p>
 
