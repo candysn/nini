@@ -20,7 +20,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>记一位年轻女律师的人生转变</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0227-1.jpg"width=640></div><div align="center">心灰意冷疑无路 重新选择见光明（网络照片）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0302-1.jpg"width=640></div><div align="center">心灰意冷疑无路 重新选择见光明（网络照片）</div><p>
  
 【希望之声2019年2月23日】（本台记者慧光综合报导）
 
