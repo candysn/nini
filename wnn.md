@@ -19,13 +19,13 @@
 
 
 
-<div align="center"><IMG SRC="wnn/img/aa124.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>一位当代女诗人的生死劫</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0305-1.jpg"width=640></div><div align="center">生命尽头有新路 生死一念看选择（网络照片）</div><p>
  
 【希望之声2019年3月1日】（本台记者慧光综合报导）王丽华是台湾人，是台湾著名诗人，曾在台湾静宜大学中文系任教。她曾留学美国，取得亚洲文学硕士学位。她从大学时代就开始写作，许多作品发表在台湾的多个文学期刊和杂志上。她的作品富有韵律感，其中有关政治题材的诗内容犀利、深刻，在女性诗人中独树一帜。她也曾出版过系列诗集，在台湾文学界颇有影响。<p>
  
-<div align="center"><IMG SRC="wnn/img/19-0305-2.jpg"width=640></div><div align="center">台湾诗人王丽华（王丽华提供）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0305-2.jpg"width=400></div><div align="center">台湾诗人王丽华（王丽华提供）</div><p>
 
 然而，与事业顺利发展截然相反的是她的身体状况，从上个世纪九十年代开始，她的身体就越来越差，叫救护车、挂急诊成了生活中的常事儿。大约在1990年，她的血压就出现过超高现象，人的正常血压是小于120／80毫米汞柱，收缩压达到180毫米汞柱就很危险，而她的收缩压常达到190、200毫米汞柱，严重的高血压使得她经常出现晕厥。
 
