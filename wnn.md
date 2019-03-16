@@ -2,7 +2,7 @@
 <hr>
 <IMG SRC="wnn/img/001.jpg"width=880></p>
 
-<div align=center><b>直连不必翻墙 必看视频 http://114.37.27.200/</b></div>
+<div align=center><b>直连不必翻墙 必看视频 http://114.37.72.118/</b></div>
 
 <h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/D-00.jpg" width=880></a></h1>
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
