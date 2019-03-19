@@ -16,15 +16,12 @@
 
 
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
-<h2 align="center"><b>“从造假盛行 谈自焚伪案</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0316-1.jpg"width=640></div><div align="center">在中共炮制的“天安门自焚”伪案中，“自焚者”王进东重度烧伤，衣服已被烧焦，但其头发、眉毛和两腿间盛汽油的塑料雪碧瓶却完好无损。（明慧网）</div><p>
 
 
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>“从造假盛行 谈自焚伪案</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0316-1.jpg"width=640></div><div align="center">在中共炮制的“天安门自焚”伪案中，“自焚者”王进东重度烧伤，衣服已被烧焦，但其头发、眉毛和两腿间盛汽油的塑料雪碧瓶却完好无损。（明慧网）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0319-2.jpg"width=640></div><div align="center">在中共炮制的“天安门自焚”伪案中，“自焚者”王进东重度烧伤，衣服已被烧焦，但其头发、眉毛和两腿间盛汽油的塑料雪碧瓶却完好无损。（明慧网）</div><p>
  
 【大纪元2019年03月19日讯】中国社会乱象，近日又添两桩。<p>
 
