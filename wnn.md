@@ -22,7 +22,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>冲破谎言找出路，“610”也有明白人</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0322-1.jpg"width=640></div><div align="center">向道之心通苍天 醒悟之后莫迟疑</div><p><p>
+<div align="center"><IMG SRC="wnn/img/19-0326-1.jpg"width=640></div><div align="center">向道之心通苍天 醒悟之后莫迟疑</div><p><p>
  
 【希望之声2019年3月17日】（本台记者慧光综合报导）
 
