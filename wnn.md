@@ -66,7 +66,7 @@
 
 现在每当他打开钱包，看到“法轮大法好”的护身符，心情总是久久不能平静。
  
-<div align="center"><IMG SRC="wnn/img/19-0406-2.jpg"width=640></div><div align="center">“法轮大法好”护身符</div><p><p>
+<div align="center"><IMG SRC="wnn/img/19-0406-2.jpg"width=400></div><div align="center">“法轮大法好”护身符</div><p><p>
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>中共借寺庙诽谤法轮功</b></h2> 
