@@ -53,7 +53,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>说说“中共不让的……”</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0409-1.jpg" width=640></div><p>
+<div align="center"><IMG SRC="wnn/img/19-0409-1.jpg" width=540></div><p>
 
 【明慧网二零一九年四月七日】十多年前，一位因不放弃信仰而遭到中共酷刑折磨的男士，在一次次被逼迫放弃信仰的惨烈毒打中，勇敢的守住了自己的信念。可是当他被强制去看别人遭受酷刑折磨后，崩溃了，因为那电棍“啪啪”的火花、毒打的惨叫声，让他善良的心无法承受，从此精神失常了。<p>
 
