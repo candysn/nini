@@ -20,6 +20,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>记一位非同寻常的越南女性</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0416-1.jpg"width=640></div><div align="center">“越南成功的企业家、曾获得过世界小姐亚军的Nguyen Thu Huong</div><p>
