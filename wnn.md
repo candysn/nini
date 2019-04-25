@@ -21,7 +21,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>两场山火的不同结局</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0425-2.jpg"width=640></div><div align="center">“四川凉山州木里县雅砻江镇突发山火（网络照片）</div>
+<div align="center"><IMG SRC="wnn/img/19-0425-2.jpg"width=640></div><div align="center">四川凉山州木里县雅砻江镇突发山火（网络照片）</div>
 <p>
  
 【明慧网二零一九年四月二十三日】〖大陆来稿〗三月三十日，四川凉山州木里县雅砻江镇突发山火，大面积的原始森林被焚毁，三十多个年轻的生命葬身火海。<p>
@@ -50,7 +50,7 @@
   
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>她冲破无神论桎梏后有了新体验</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0425-1.jpg"width=640></div><div align="center">“在雪中打坐的法轮功学员（网络照片）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0425-1.jpg"width=640></div><div align="center">在雪中打坐的法轮功学员（网络照片）</div><p>
  
  【希望之声2019年3月31日】（本台记者慧光综合报导）她叫梅莲，从上个世纪九十年代中期就留学德国，受过高等教育，毕业后留在德国开公司、做生意，是一名典型的女强人。开始创业时比较艰难，可后来很快就有了可观的收入和稳定的家庭，夫妇俩一起打拼，也算是事业有成，家庭幸福。<p>
 
@@ -88,7 +88,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>她体验到了修炼的玄妙【音频】</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0423-1.jpg"width=640></div><div align="center">“正念正信路通天 玄妙就在一念间</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0423-1.jpg"width=640></div><div align="center">正念正信路通天 玄妙就在一念间</div><p>
 
 【希望之声2019年4月5日】（本台记者慧光综合报导）<p>
 
@@ -135,7 +135,7 @@
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h1 align="center"><b>四·二五20周年 易蓉：抛弃中共拥抱未来</b></h1> 
 <h2 align="center"><b>在纽约法轮功学员纪念4.25和平上访二十周年集会上演讲</b></h2>  
-<div align="center"><IMG SRC="wnn/img/19-0423-2.jpg"width=640></div><div align="center">“2019年4.20法拉盛游行（爱德华/大纪元）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0423-2.jpg"width=640></div><div align="center">2019年4.20法拉盛游行（爱德华/大纪元）</div><p>
  
 【大纪元2019年04月21日讯】各位朋友，各位来宾大家好：<p>
 
@@ -155,7 +155,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>他从台湾黑社会中走出来……</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0420-1.jpg"width=640></div><div align="center">“拥抱阳光走新路 痛改前非做新人</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0420-1.jpg"width=640></div><div align="center">拥抱阳光走新路 痛改前非做新人</div><p>
 
 【希望之声2019年4月17日】（本台记者慧光综合报导）我是土生土长的台湾人，十几岁就加入了黑社会帮派。那时候我血气方刚，头脑简单，认为这个社会就是弱肉强食，只要力气大、拳头狠就可以赢得尊重，就有地位，说话就有人听；只要有势力，还能赚大钱。因为心狠手辣，很快我就做了“老大”。不管遇到谁，只要一言不合，就会拿刀动枪，杀人砍人。我曾因杀人罪被判刑入狱，刑满释放后，干别的我也不会，就继续在黑道中打拼。不过经历一次狱中服刑后，我也变得聪明一些，不仅仅是靠打架为生了，开始做“围标、绑标”（编者注：即通过暴力手段胁迫竞标者参与竞标获取非法利益，这是违法犯罪行为）的生意。<p>
 
@@ -220,7 +220,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>记一位非同寻常的越南女性</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0416-1.jpg"width=640></div><div align="center">“越南成功的企业家、曾获得过世界小姐亚军的Nguyen Thu Huong</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0416-1.jpg"width=640></div><div align="center">越南成功的企业家、曾获得过世界小姐亚军的Nguyen Thu Huong</div><p>
  
 【希望之声2019年4月6日】（本台记者慧光综合报导）阮秋香（Nguyen Thu Huong）是一位美丽年轻漂亮的越南女性，是一位典型的“美女”，她不仅有迷人的外表，还有异禀的天赋，更重要的是她还有一颗纯洁善良高尚的心灵。<p>
  
@@ -258,7 +258,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>一位中共干部在参与镇压法轮功过程中的真实体验</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0416-4.jpg"width=640></div><div align="center">“法轮大法好 神奇遍人间</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0416-4.jpg"width=640></div><div align="center">法轮大法好 神奇遍人间</div><p>
  
 【希望之声2017年11月29日】（本台记者慧光综合报导）我是在中国政府机关工作的一名干部，1999年“7.20”之后，单位领导派我负责“转化”法轮功学员。由于受党文化教育多年，也由于不了解法轮功到底是什么，当时我很抵触法轮功。我以为凭我对科学知识的掌握以及多年的工作经验，说服单位那几个炼法轮功的老头、老太太并不难。<p>
 
@@ -286,7 +286,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>医生见证人病人重生的神奇</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0413-2.jpg"width=640></div><div align="center">“她丈夫两次神奇地闯过生死劫难。医生说，医院的专家都在研究⋯⋯（明慧网）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0413-2.jpg"width=640></div><div align="center">她丈夫两次神奇地闯过生死劫难。医生说，医院的专家都在研究⋯⋯（明慧网）</div><p>
  
 【大纪元2019年04月04日讯】4月4日，明慧网刊登了一篇文章，讲述了一对夫妻重生的神奇经历。医院的医生对她丈夫能活过来感到十分惊奇，告诉她，医院里的专家都在研究⋯⋯<p>
 
@@ -376,7 +376,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>参加“法轮功九讲班”解开心中迷</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0409-2.jpg"width=640></div><div align="center">“从3月5日到13日期间，多名华裔新学员参加了洛杉矶法轮功学员义务开设的第54期“法轮功九讲班”。最后一天，新学员分享了各自身心改变的心得体会。（姜琳达／大纪元）</div><p><p>
+<div align="center"><IMG SRC="wnn/img/19-0409-2.jpg"width=640></div><div align="center">从3月5日到13日期间，多名华裔新学员参加了洛杉矶法轮功学员义务开设的第54期“法轮功九讲班”。最后一天，新学员分享了各自身心改变的心得体会。（姜琳达／大纪元）</div><p><p>
 
 【大纪元2019年03月18日讯】（大纪元记者姜琳达艾尔蒙地报导）“我花了4年时间，把法轮功了解到这个程度，到今天我坐在这里。我相信冥冥之中都有神灵安排的，我要修炼下去，对自己的人生负责。”曾在中共公安部系统任职的许先生，在洛杉矶法轮功学员开设的第54期“法轮功九讲班”上这样感叹。<p>
 
@@ -428,7 +428,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>护身符带来的奇迹</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0406-1.jpg"width=640></div><div align="center">“法轮大法好”护身符</div><p><p>
+<div align="center"><IMG SRC="wnn/img/19-0406-1.jpg"width=640></div><div align="center">法轮大法好”护身符</div><p><p>
  
 【希望之声2017年4月17日】（本台记者慧光综合报导）阿强是一家外资企业的总经理，有漂亮的太太和可爱的儿子，事业有成，家庭幸福，是众多人羡慕的对象。p>
 
@@ -474,7 +474,7 @@
 
 现在每当他打开钱包，看到“法轮大法好”的护身符，心情总是久久不能平静。
  
-<div align="center"><IMG SRC="wnn/img/19-0406-2.jpg"width=400></div><div align="center">“法轮大法好”护身符</div><p><p>
+<div align="center"><IMG SRC="wnn/img/19-0406-2.jpg"width=400></div><div align="center">法轮大法好”护身符</div><p><p>
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>中共借寺庙诽谤法轮功</b></h2> 
