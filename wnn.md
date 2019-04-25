@@ -18,6 +18,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>两场山火的不同结局</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0425-2.jpg"width=640></div><div align="center">“四川凉山州木里县雅砻江镇突发山火（网络照片）</div>
