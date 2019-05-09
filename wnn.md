@@ -20,6 +20,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>对“活摘器官”保持沉默的代价</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0508-1.jpg"width=640></div><div align="center">这幅油画展现了活摘器官的现场，里面有正遭到活摘器官的法轮功学员以及犯下滔天大罪的人们。（油画：《苏家屯的罪恶》（《Organ Harvesting》）董锡强，油画，170x130cm，2007）</div><p>
