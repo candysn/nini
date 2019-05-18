@@ -23,7 +23,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>她在烧伤毁容后醒悟遇到奇迹</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0514-2.jpg"width=640></div><div align="center">失足引来烧身祸 醒悟回首重做人（网络照片）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0518-1.jpg"width=640></div><div align="center">失足引来烧身祸 醒悟回首重做人（网络照片）</div><p>
  
 【希望之声2019年5月15日】（本台记者慧光综合报导）她叫艳艳，是一位年轻女性，生活在中国大陆北方的一个小县城里。<p>
 
