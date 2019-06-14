@@ -13,7 +13,7 @@
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
 
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+
 
 <div align="center"><a href="https://git.io/01"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
 
