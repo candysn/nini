@@ -1,16 +1,25 @@
-<a href="https://git.io/ffq"><IMG SRC="wnn/img/113.jpg" width=880></a></p>
-<hr>
-<IMG SRC="wnn/img/001.jpg"width=880></p>
+<div align="center"><IMG SRC="wnn/img/2 (1).jpg" width=880></div><p>
+
+<div align=center><b>知情权不能放弃，也不作愚民，让你看第一手不被过滤的新闻，翻墙软件免费下载https://git.io/ffq</b></div>
 
 <div align=center><b>直连不必翻墙 必看视频http://118.161.138.80/</b></div>
 
-<h1 align="center"><a href="https://github.com/candysn/nini/blob/master/goal.md"><IMG SRC="wnn/img/D-00.jpg" width=880></a></h1>
+
+<div align=center><b>中共覆灭在即 勿依赖中共保权https://git.io/Ffor</b></div>
+
+
+<div align=center><b>真相总览➤ https://git.io/01</b></div>
+
 <h1 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h1>
-<h2 align="center"><a href="https://github.com/3fmd/gm/blob/master/gm/download/Reasily1802h.apk?raw=true">手机必备Reasily - EPUB 阅读器apk 请下载安装 才能阅读影视epub</a></h2>
 
 <div align="center"><a href="https://git.io/01"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
+
 <h2 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>2018年5月~8月看更多</a></b></h2>
+
 <h2 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-2.md"><b>2108年9月~12月, 看更多</a></b></h2>
+
+
+
 
 
 
