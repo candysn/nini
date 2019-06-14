@@ -30,6 +30,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>一张在世界广为流传的照片</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0611-1.jpg"width=640></div><div align="center">法轮功学员在炼第五套功法“神通加持法”（网络照片）</div><p>
