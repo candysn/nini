@@ -1,17 +1,17 @@
 <div align="center"><IMG SRC="wnn/img/aaa002.jpg" width=880></div><p>
  
-<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
  
 <div align=center><b>知情权不能放弃，也不作愚民，让你看第一手不被过滤的新闻，翻墙软件免费下载https://git.io/ffq</b></div>
 
-<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
 <div align=center><b>直连不必翻墙 🌼必看 精彩视频  http://118.161.138.80/</b></div>
 
 
-<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
 <div align=center><b>中共覆灭在即 勿依赖中共保权 https://git.io/Ffor</b></div>
 
-<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
 <div align=center><b>最好的分享给你…真相总览➤ https://git.io/01</b></div>
 <hr>
 <h2 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h2>
