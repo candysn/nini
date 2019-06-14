@@ -1,4 +1,4 @@
-<div align="center"><IMG SRC="wnn/img/2 (1).jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/aaa001.jpg" width=880></div><p>
 <hr>
 <div align=center><b>知情权不能放弃，也不作愚民，让你看第一手不被过滤的新闻，翻墙软件免费下载https://git.io/ffq</b></div>
 <hr>
