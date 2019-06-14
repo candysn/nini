@@ -18,9 +18,9 @@
 
 <div align="center"><a href="https://github.com/sodore/dsdsa/blob/master/ssss2.md?6019714326"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
 
-<h3 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>2018年5月~8月看更多</a></b></h3>
+<h2 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>2018年5月~8月看更多</a></b></h2>
 
-<h3 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-2.md"><b>2108年9月~12月, 看更多</a></b></h3>
+<h2 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-2.md"><b>2108年9月~12月, 看更多</a></b></h2>
 
 
 
