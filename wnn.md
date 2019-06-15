@@ -30,9 +30,10 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>一个法轮大法修炼者家属的心声</b></h2> 
-<div align="center"><IMG SRC="wnn/img/1-0615-3.jpg" width=640></div><p>
+<div align="center"><IMG SRC="wnn/img/19-0615-3.jpg" width=640></div><p>
  
  【明慧网二零一九年六月十日】我非常有幸全程观看了二零一九年五月十六日来自世界各地的万名法轮功学员横穿纽约曼哈顿庆祝法轮大法弘传世界二十七周年暨第二十届世界法轮大法日的大游行现场报道视频以及五月十八日总督岛五千名法轮功学员组成的法轮图形和“真善忍”三个字的照片及视频，太壮观了，太震撼了！<p>
 
