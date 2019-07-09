@@ -29,7 +29,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>明真相后 大陆公检法人员抛弃中共</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0706-1.jpg"width=640></div><div align="center">图为墨尔本法轮功学员李银。（李银提供）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0709-1.jpg"width=640></div><div align="center">图为墨尔本法轮功学员李银。（李银提供）</div><p>
 
 【大纪元2019年07月06日讯】（大纪元记者林芷青墨尔本报导）20年的光阴，可以让一个呱呱坠地的婴儿长成风华正茂的青年；20年的积淀，可以让一坛新醅变成浸润着岁月味道的陈酿；在人们忙于追求一生幸福的时候，法轮功学员则在日复一日地向人们播撒善的种子，整整20年。<p>
 
