@@ -31,7 +31,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>正念正行换了天</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0719-1.jpg"width=640></div><div align="center">法轮功学员在炼第五套功法“神通加持法”（网络照片）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0719-2.jpg"width=640></div><div align="center">法轮功学员在炼第五套功法“神通加持法”（网络照片）</div><p>
 
 【希望之声2019年7月9日】（本台记者慧光综合报导）我生活在中国大陆河南省的一个中等城市，是一名普通的中年女性，在当地一家工厂上班，按照现在流行的说法就是“上班族”吧。<p>
 
