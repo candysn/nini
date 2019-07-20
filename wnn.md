@@ -5,7 +5,7 @@
 <div align=center><b>知情权不能放弃，也不作愚民，让你看第一手不被过滤的新闻，翻墙软件免费下载 https://git.io/ffq</b></div>
 
 <div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
-<div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://111.241.89.175/</b></div>
+<div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://36.227.101.224/</b></div>
 
 
 <div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
