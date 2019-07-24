@@ -27,6 +27,8 @@
 
 
 
+
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>法轮功递迫害者名单 美政府官员披露新动态</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0723-1.jpg"width=640></div><div align="center">明慧网7月21日消息，近日，法轮功学员将一批迫害者的名单递交给美国国务院，要求根据相关法律将其列入特殊名单，对其拒发美国签证、禁止其入境。图为美国签证。（大纪元资料室）</div><p>
