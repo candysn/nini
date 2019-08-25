@@ -31,7 +31,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>用慈悲的力量化解宿怨【音频】</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0825-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0825-2.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
 
 【希望之声2019年8月16日】（本台记者慧光综合报导）我出生在中国大陆辽宁省的一个小山村，是一名“八零后”女性。在我只有五个月大的时候，父亲因一场车祸离开人世。那时我大姐十岁，二姐八岁，三姐五岁，家里的全部重担都落在母亲一人肩上，是母亲含辛茹苦拉扯着我们姐妹四人艰难度日。全家五口全是女的，老的老，小的小，那日子过得怎样可想而知。<p>
 
