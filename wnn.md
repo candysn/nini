@@ -62,7 +62,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>理科教授见证了法轮大法的超常</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0827-1.jpg" width=640></div><p> 
+<div align="center"><IMG SRC="wnn/img/19-0827.jpg" width=640></div><p> 
 
 我是一名高校的理科教授，从事教学几十年，从来没有怀疑过科学，一加一等于二是我笃信的规则。但法轮功向我展现了他的神奇与超常，也改变了我在实证科学中几十年来养成的固步自封的观念。<p> 
 
