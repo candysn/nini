@@ -30,6 +30,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>寻获生命真谛 法国医院院长分享修炼感悟</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-0902-1.jpg"width=640></div><div align="center">2019年8月30日，法国法轮功学员Veronique Raabon在英国伦敦的摄政公园为当天的游行做准备。 （傅洁／大纪元）</div><p>
