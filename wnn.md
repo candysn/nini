@@ -41,7 +41,7 @@
 
 这位老将军曾经做过战地记者，在柬埔寨战场和北部边境战场，他曾不畏生死，与士兵一起坚守在最前沿的堑壕，可谓战功累累。
 
-<div align="center"><IMG SRC="wnn/img/19-0924-3.jpg"width=640></div><div align="center"图1 阮少将的历史照片：1）与Vo Nguyen Giap将军在一起； 2）阮少将（最右边）接待外宾；3）阮少将和前总统Le Duc Anh；4）阮少将在河内歌剧院入口处；5）阮少将访问Dien Bien Phu指挥基地；6）阮少将（左起第3位）参加一个行业盛会。</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0924-3.jpg"width=640></div><div align="center">图1 阮少将的历史照片：1）与Vo Nguyen Giap将军在一起； 2）阮少将（最右边）接待外宾；3）阮少将和前总统Le Duc Anh；4）阮少将在河内歌剧院入口处；5）阮少将访问Dien Bien Phu指挥基地；6）阮少将（左起第3位）参加一个行业盛会。</div><p>
  
 刚退休时他的身体非常健康，因为他喜欢运动，喜欢打乒乓球等，体质非常好，退休以后也经常参加各种形式的运动和活动。不幸的是，在2017年的一天，他突然感到腹痛，赶紧去医院检查，发现胃癌已经到了晚期……。这个消息就像一颗重磅炸弹，让他如五雷轰顶，一向坚强的他感受到了从未有过的巨大压力。
 
@@ -100,7 +100,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>她从惊人的夺命车祸中生还</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-0919-1.jpg"width=640></div><div align="center">法轮功学员在海边炼功（网络照片））</div><p>
+<div align="center"><IMG SRC="wnn/img/19-0919-1.jpg"width=640></div><div align="center">法轮功学员在海边炼功（网络照片）</div><p>
 
 【希望之声2019年9月12日】（本台记者慧光综合报导）在中国大陆河北省的一个小县城里，住着一位普通的老太太。2010年秋天，她遭遇一场惨不忍睹的夺命车祸，围观的众人都认为她活不了了，可最后她仍然死里逃生，不仅捡回了性命，还有一些非常奇特的经历。<p>
 
