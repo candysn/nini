@@ -32,7 +32,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>一位高中女教师的无悔选择</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-1001-2.jpg"width=640></div><div align="center">图：资深律师哈米德·萨比表示，强摘器官是本世纪最恶劣的大规模暴行之一</div><p>
+<div align="center"><IMG SRC="wnn/img/19-1001-1.jpg"width=640></div><div align="center">图：资深律师哈米德·萨比表示，强摘器官是本世纪最恶劣的大规模暴行之一</div><p>
  
 【希望之声2019年9月26日】（本台记者慧光综合报导）她生活在中国大陆北方的一座城市，大学毕业后担任高中教师。她聪慧稳重，尽职敬业，受到学生的普遍好评。她三十岁以前事业顺利，还有一位爱她的丈夫，家庭很幸福。然而在她三十岁的那年，人生中出现了重大变故，形势急转直下，正应了中国的那句老话：人有旦夕祸福。<p>
 
