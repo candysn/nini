@@ -66,7 +66,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>中共“老区”的退党潮</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-1001-2.jpg"width=640></div><div align="center">纽约曼哈顿，大游行中的“三退保平安”方阵，《九评共产党》的大模型。（摄影：李明／大纪元）</div><p>
+<div align="center"><IMG SRC="wnn/img/19-1002-2.jpg"width=640></div><div align="center">纽约曼哈顿，大游行中的“三退保平安”方阵，《九评共产党》的大模型。（摄影：李明／大纪元）</div><p>
 
 【大纪元2019年09月25日讯】我们村的东边自古就有两座高高的土崖：一座是黄土崖，一座是红土崖，村里老人说这是老天爷给的两座宝山：用黄土崖的土掺上麦秸和泥，抹墙打土坯，十分坚固，村民们都用它修房盖屋；用红土崖的土掺上煤粉和煤泥、做煤球，烧炉子做饭取暖，火苗非常旺盛，给村民们极大的方便。<p>
 
