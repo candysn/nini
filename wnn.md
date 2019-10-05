@@ -35,7 +35,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>生命尽头的阳光——记一位设计师的沧桑历程【音频】</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-1003-2.jpg"width=640></div><div align="center">法轮功学员同步递交又一批迫害者名单给美加英澳政府</div><p>
+<div align="center"><IMG SRC="wnn/img/19-1005-2.jpg"width=640></div><div align="center">法轮功学员同步递交又一批迫害者名单给美加英澳政府</div><p>
  
 【希望之声2019年9月21日】（本台记者慧光综合报导）他生活在中国大陆湖北省，是大陆改革开放以后第一批经过认证的建筑行业设计师。在以后的工作中，他通过自己的辛苦努力，很快就取得了一定成就，有了一个幸福的家庭，也拥有一家自己的公司，这样顺利的日子过了十多年。<p>
 
