@@ -34,7 +34,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>从仇恨中走出来的私企女老板</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-1009-2.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）(Alex Wong/Getty Images)</div><p>
+<div align="center"><IMG SRC="wnn/img/19-1008-2.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）(Alex Wong/Getty Images)</div><p>
  
 【希望之声2019年10月2日】（本台记者慧光综合报导）她是中国大陆北方人，曾经是一位年轻漂亮的私企女老板，三十来岁时就有了自己的工厂，产品销往广东、深圳等发达地区，后来为扩大经营，还在上海建了一个门市销售产品。她很聪明，很要强，也能吃苦，所以开始时在生意场上走得很顺利。<p>
 
@@ -82,7 +82,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>麦康奈尔：共产党是十几亿中国人悲剧根源</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-1009-1.jpg"width=640></div><div align="center">为参议院共和党领袖麦康奈尔（中）召开记者会。 (Alex Wong/Getty Images)</div><p>
+<div align="center"><IMG SRC="wnn/img/19-1008-1.jpg"width=640></div><div align="center">为参议院共和党领袖麦康奈尔（中）召开记者会。 (Alex Wong/Getty Images)</div><p>
  
 【大纪元2019年10月02日讯】（大纪元记者林燕编译报导）美国参议院多数党领袖米奇·麦康奈尔（Mitch McConnell）周二（10月1日）发表对中共篡政70周年的声明，指中共的行为不仅是十几亿中国人的悲剧根源，也在对周围的国家构成威胁。<p>
 
