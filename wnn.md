@@ -32,6 +32,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>从仇恨中走出来的私企女老板</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1008-2.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）(Alex Wong/Getty Images)</div><p>
