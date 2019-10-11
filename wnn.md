@@ -25,6 +25,12 @@
 
 
 
+
+
+
+
+
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>一名数学女教师的好人好运</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1011-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）(Alex Wong/Getty Images)</div><p>
