@@ -33,7 +33,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>从优秀军官到一再被挽留的国企高管【音频】</b></h2> 
-<div align="center"><IMG SRC="wnn/img/19-1017-1.jpg"width=640></div><div align="center">法轮功学员在湖边打坐炼功（网络照片） </div><p>
+<div align="center"><IMG SRC="wnn/img/19-1017-2.jpg"width=640></div><div align="center">法轮功学员在湖边打坐炼功（网络照片） </div><p>
 
 【希望之声2019年10月12日】（本台记者慧光综合报导）他曾经是中共军队某部机关的一名中级指挥军官，在要害部门工作，因工作努力，尽职尽责，多次受到师、团机关以及军队院校、大军区和总参谋部等颁发的嘉奖和表彰，是所在部队的先进人物，在部队服役近三十年。<p>
 
