@@ -13,7 +13,7 @@
 <div align=center><b>中共覆灭在即 勿依赖中共保权 https://git.io/Ffor</b></div>
 
 <div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
-<div align=center><b>最好的分享给你…真相总览➤http://36.228.41.89/</b></div>
+<div align=center><b>最好的分享给你…真相总览➤http://220.141.118.128/</b></div>
 <hr>
 <h2 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h2>
 
