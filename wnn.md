@@ -1,9 +1,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aaa001.jpg" width=880></div><p>
  
-<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
- 
-<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
+
 <div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://36.227.99.228/</b></div>
 
 <div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
