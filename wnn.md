@@ -9,7 +9,7 @@
 
 <div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
  
-<div align=center><b>● 红潮即将倾覆 天之将明 ●https://git.io/bb99bbss https://git.io/Ffor</b></div> 
+<div align=center><b>● 红潮即将倾覆 天之将明 ●https://git.io/bb99bbss</b></div> 
 
 
 <hr>
