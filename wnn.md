@@ -2,7 +2,7 @@
 <div align="center"><IMG SRC="wnn/img/aaa001.jpg" width=880></div><p>
  
 
-<div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://220.141.128.24</b></div>
+<div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://36.227.112.13</b></div>
 
 <div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
 <div align=center><b>中共覆灭在即 勿依赖中共保权 https://git.io/Ffor</b></div>
