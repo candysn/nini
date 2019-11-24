@@ -35,7 +35,7 @@
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h1 align="center"><b>浊世中的清流</b></h1>
 <h2 align="center"><b>——记一位在金融界工作的八零后女性</b></h2>
-<div align="center"><IMG SRC="wnn/img/19-1124-1.jpg"width=640></div><div align="center">长沙9岁男童被折磨打死，围观者无人施救。</div><p>
+<div align="center"><IMG SRC="wnn/img/19-1124-2.jpg"width=640></div><div align="center">长沙9岁男童被折磨打死，围观者无人施救。</div><p>
  
 【希望之声2019年11月24日】（本台记者慧光综合报导）她出生在中国大陆，是一位八零后女性。研究生毕业后进入金融系统的一家知名机构工作，主要负责信贷审批业务。在这个岗位上，她已经做了十几年，积累了丰富经验，已经成为业务骨干，很受领导器重。<p>
 
