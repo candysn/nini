@@ -72,7 +72,7 @@
 
 我的亲身经历证实了法轮大法的神奇和伟大，说出来的目的就是希望那些还被谎言蒙蔽的人，能有一个清醒的认识，不要被错误观念阻挡了自己的未来。
 
-原文https://www.zhengjian.org/node/255472
+原文https://m.soundofhope.org/post/316979
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>台湾民众：法轮功了不起 </b></h2>
