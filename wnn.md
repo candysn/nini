@@ -4,7 +4,7 @@
 <div align=center><b>知情权不能放弃，也不作愚民，让你看第一手不被过滤的新闻，翻墙软件免费下载 https://git.io/opopop</b></div>
 <div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
  
-<div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://61.228.119.200</b></div>
+<div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://220.141.119.226</b></div>
 
 <div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
 <div align=center><b>中共覆灭在即 勿依赖中共保权 https://git.io/Ffor</b></div>
