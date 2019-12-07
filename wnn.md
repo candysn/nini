@@ -33,7 +33,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>共产党凭什么统治中国 </b></h2>
-<div align="center"><IMG SRC="wnn/img/19-1207-.jpg"width=640></div><div align="center">8月11日，美国白宫的“我们人民（We the People）”请愿网站上，有人发起连署活动，要求白宫把中国共产党正式列为“恐怖组织”。目前已超过10万人联署。（大纪元合成）</div><p> 
+<div align="center"><IMG SRC="wnn/img/19-1207-1.jpg"width=640></div><div align="center">8月11日，美国白宫的“我们人民（We the People）”请愿网站上，有人发起连署活动，要求白宫把中国共产党正式列为“恐怖组织”。目前已超过10万人联署。（大纪元合成）</div><p> 
 
 【大纪元2019年12月02日讯】中国共产党控制舆论、控制思想的方法之一就是混淆概念。不知不觉中，中国的人们已经习惯了认为国家就是共产党，共产党就是国家。<p>
 
