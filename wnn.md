@@ -124,7 +124,7 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>台湾“卡拉OK店”老板娘的故事 </b></h2>
-<div align="center"><IMG SRC="wnn/img/19-1210-1.jpg"width=640></div><div align="center">台灣法輪功學員紫雲。（明慧網）</div><p> 
+<div align="center"><IMG SRC="wnn/img/19-1210-1.jpg"width=640></div><div align="center">台湾法轮功学员紫云。（明慧网）</div><p> 
  
 【大纪元2019年12月07日讯】听到紫云说要修炼法轮功，很多人直觉反应都说：“哪有可能？经营这种行业的人，在那么复杂的环境中迎来送往，过惯了浮华夜生活的人，怎么可能修炼？”<p>
 
