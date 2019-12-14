@@ -29,9 +29,10 @@
 
 
 
+ 
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
-<h2 align="center"><b>与众不同的大学老师 </b></h2>
+<h2 align="center"><b>与众不同的大学老师</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1214-2.jpg"width=640></div><div align="center"法轮功学员在打坐炼功（网络照片）</div><p>
  
 【希望之声2019年12月10日】（本台记者慧光综合报导）她是中国东北一所省城大学的老师，教自动化专业。在大学里她读的是电子学专业，为了适应教学需要，她不得不报考了自动化专业的硕士研究生，之后又取得了机械制造及自动化专业的博士生学位。在大学里，一般老师都是长期讲一门课程，这样可以有更多的时间去搞科研、出论文，以便为评职称打基础。而她在教学期间，几乎每三年就要换教一门新课，但她从不抱怨，因为对她来说学习不是一件难事，她喜欢有新的挑战。<p>
@@ -69,7 +70,7 @@
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>法轮功反迫害建立了选择善恶的标准 </b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1214-1.jpg"width=640></div><div align="center">法轮功学员李祥春博士发言。（林乐予／大纪元）</div><p> 
-  
+   
 【大纪元2019年12月12日讯】（大纪元华盛顿DC记者站报导）12月10日是国际人权日，“全球反迫害制止中共暴行、声援退党大潮”研讨会在美国国会举行。法轮功学员李祥春博士在研讨会上发言，题为“法轮功二十年的反迫害建立了选择善恶的标准”。<p>
 
 以下是他的发言全文：
@@ -124,7 +125,7 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>台湾“卡拉OK店”老板娘的故事 </b></h2>
-<div align="center"><IMG SRC="wnn/img/19-1210-1.jpg"width=640></div><div align="center"></div><p> 
+<div align="center"><IMG SRC="wnn/img/19-1210-1.jpg"width=640></div><div align="center"台灣法輪功學員紫雲。（明慧網）</div><p> 
 
 【大纪元2019年12月07日讯】听到紫云说要修炼法轮功，很多人直觉反应都说：“哪有可能？经营这种行业的人，在那么复杂的环境中迎来送往，过惯了浮华夜生活的人，怎么可能修炼？”<p>
 
