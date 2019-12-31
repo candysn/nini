@@ -36,7 +36,7 @@
  
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>大学老师和儿子的生命传奇</b></h2>
-<div align="center"><IMG SRC="wnn/img/20-0101-2.jpg"width=640></div><div align="center">修炼法轮功的母子在打坐炼功（网络照片）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0101-2.jpg"width=640></div><div align="center">修炼法轮功的母子在打坐炼功（网络照片）</div><p>
  
 【希望之声2019年12月27日】（本台记者慧光综合报导）我生活在中国大陆辽宁省沈阳市，在一所高校担任教师，是一名普通的知识女性，今年五十二岁了。<p>
 
@@ -74,7 +74,7 @@
  
  <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>读书被关押的奇闻</b></h2>
-<div align="center"><IMG SRC="wnn/img/20-0101-1.jpg"width=640></div><div align="center">中为法轮大法主要著作《转法轮》英文版，左右分别为法轮大法炼功音乐和教功光碟。（天梯书店）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0101-1.jpg"width=640></div><div align="center">中为法轮大法主要著作《转法轮》英文版，左右分别为法轮大法炼功音乐和教功光碟。（天梯书店）</div><p>
  
 明慧网近日报导，七月十日陕西省岐山县公安局调动三十多名警察，绑架了十多位高龄七十岁、在一起读法轮功书籍《转法轮》的老人，再非法抄家与抢劫私人财物。其中徐明侠、焦炳兰、亚兰一直被非法关押、构陷，曹录侠、会会、王瑞琴、李会琴、邵启虎五位老人被取保候审放回，目前也被构陷到检察院。<p>
 
