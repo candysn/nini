@@ -24,9 +24,6 @@
 
 
 
-<a href="https://git.io/ffq"><IMG SRC="wnn/img/113.jpg" width=880></a></p>
-<hr>
-<IMG SRC="wnn/img/001.jpg"width=880></p>
 
 
 
