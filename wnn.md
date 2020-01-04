@@ -36,7 +36,7 @@
   
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>盘算与算盘</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0104-1.jpg"width=640></div>
+<div align="center"><IMG SRC="wnn/img2/20-0104-1.jpg"width=640></div><div align="center"></div><p>
  
 【明慧网二零一九年十二月二十五日】司马迁说：“天下熙熙，皆为利来；天下攘攘，皆为利往。”利益牵动着人心，利益驱动着行为。人们盘算着如何加官進爵，如何日進斗金，这本无可厚非。可惜的是，当人财迷心窍时，往往会利令智昏。人的精打细算，如果没有道德良知，没有底线意识，可能就会见利忘义，见财起意。<p>
 
