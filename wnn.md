@@ -262,7 +262,7 @@
 
 原文http://www.epochtimes.com/gb/19/12/16/n11726522.htm
  
- <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>恶徒猖狂 苍天必惩</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1229-1.jpg"width=640></div><div align="center">时事评论（明慧网）</div><p>
  
