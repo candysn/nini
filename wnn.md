@@ -1,11 +1,11 @@
 
-<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="https://github.com/gofun72/telove/blob/master/img2/a2020-111.jpg" width=880></a><br></div>
+<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="https://github.com/gofun72/telove/blob/master/img2/2020-111.jpg" width=880></a><br></div>
  
 <div align=center><b>免费突破封锁翻墙软件 https://git.io/opopop</b></div>
 
 <divalign=center><b>手机上好看的电子书（ePub版）https://github.com/gofanben/gm/blob/master/epub.md</b></div>
 
-<div align="center"><a target="_blank" href="http://36.227.97.62"><IMG SRC="https://github.com/gofun72/telove/blob/master/img2/a2020-113.jpg" width=880></a><br></div>
+<div align="center"><a target="_blank" href="http://36.227.97.62"><IMG SRC="https://github.com/gofun72/telove/blob/master/img2/2020-0113.jpg" width=880></a><br></div>
 
 
 
