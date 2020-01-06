@@ -1,5 +1,5 @@
 
-<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><div align="center"><IMG SRC="wnn/img2/2020-120.jpg"width=880></div><p>
+<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="wnn/img2/2020-120.jpg"width=880></div><p>
  
 <div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=640></div><p> 
  
