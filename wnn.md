@@ -2,16 +2,16 @@
 <div align="center"><a target="_blank" href="https://git.io/bb99bbss">
 <div align="center"><IMG SRC="wnn/img2/2020-111.jpg"width=880></div><div align="center"></div><p>
  
-<div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=500></div><p> 
+<div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=640></div><p> 
  
 <div align=center><b>免费突破封锁翻墙软件 https://git.io/opopop</b></div>
 
 <div align=center><b>手机上好看的电子书（ePub版） https://git.io/epubc</b></div>
 
-<div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=500></div><p>
+<div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=640></div><p>
  
 <div align="center"><a target="_blank" href="http://36.227.97.62">
-<div align="center"><IMG SRC="wnn/img2/2020-0113.jpg"width=700></div><div align="center"></div><p>
+<div align="center"><IMG SRC="wnn/img2/2020-0113.jpg"width=800></div><div align="center"></div><p>
  
 <div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://36.227.97.62</b></div>
 
@@ -23,36 +23,8 @@
 
 <a href="https://github.com/candysn/nini/blob/master/wnn-3.md"><b>小之每日真相(三)</a></b>
 
-
-
-
-
-
-
-
-
-<div align="center"><IMG SRC="wnn/img/aaa001.jpg" width=880></div><p>
- https://github.com/gofanben/gm/blob/master/epub.md
-<div align=center><b>知情权不能放弃，也不作愚民，让你看第一手不被过滤的新闻，翻墙软件免费下载 https://git.io/opopop</b></div>
-<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
- 
-<div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://36.227.97.62</b></div>
-
-<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
-<div align=center><b>中共覆灭在即 勿依赖中共保权 https://git.io/Ffor</b></div>
-
-<div align="center"><IMG SRC="wnn/img/ab113.jpg" width=600></div><p>
- 
-<div align=center><b>● 红潮即将倾覆 天之将明 ●https://git.io/bb99bbss</b></div> 
-
-<hr>
-<h2 align="center"><a href=https://github.com/3fmd/gm/blob/master/epub.md>免费下载好书 下载 epub 视频 音频 图文 电子书</a></h2>
-
 <div align="center"><a href="https://git.io/9stdz"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
 
-<h2 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>2018年5月~8月看更多</a></b></h2>
-
-<h2 align="center"><a href="https://github.com/candysn/nini/blob/master/wnn-2.md"><b>2108年9月~12月, 看更多</a></b></h2>
 
 
 
