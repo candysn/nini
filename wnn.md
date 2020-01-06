@@ -4,8 +4,10 @@
  
 <div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=640></div><p> 
  
-<div align=center><a href=https://git.io/opopop"><h3>免费突破封锁翻墙软件</h3></a></div>
+
 <div align=center><b>免费突破封锁翻墙软件 https://github.com/gofun72/telove/blob/master/soft.md</b></div> 
+
+<div align=center><a href="https://github.com/gofun72/telove/blob/master/soft.md">免费突破封锁翻墙软件</a></div>
 
 <div align=center><a href="https://git.io/epubc"><h3>手机上好看的电子书（ePub版）</h3></a></div>
 
