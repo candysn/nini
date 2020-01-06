@@ -17,6 +17,14 @@
 
 
 
+<a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>小之每日真相(一)</a></b>
+
+
+
+
+
+
+
 ......
 
 <div align="center"><IMG SRC="wnn/img/aaa001.jpg" width=880></div><p>
