@@ -13,7 +13,7 @@
 <div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=640></div><p>
  
 <div align="center"><a target="_blank" href="http://36.227.97.62">
-<div align="center"><IMG SRC="wnn/img2/2020-0113.jpg"width=800></div><div align="center"></div><p>
+<div align="center"><IMG SRC="wnn/img2/2020-113.jpg"width=800></div><div align="center"></div><p>
  
 <div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://36.227.97.62</b></div>
 
@@ -106,7 +106,7 @@
  
 原文 http://minghui.tv/mh/articles/2019/12/25/%E7%9B%98%E7%AE%97%E4%B8%8E%E7%AE%97%E7%9B%98-397499.html 
  
- <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>大学老师和儿子的生命传奇</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0101-2.jpg"width=640></div><div align="center">修炼法轮功的母子在打坐炼功（网络照片）</div><p>
  
@@ -144,7 +144,7 @@
  
 原文 https://www.soundofhope.org/post/325345
  
- <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>读书被关押的奇闻</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0101-1.jpg"width=640></div><div align="center">中为法轮大法主要著作《转法轮》英文版，左右分别为法轮大法炼功音乐和教功光碟。（天梯书店）</div><p>
  
