@@ -36,10 +36,11 @@
 
   
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
-<h1 align="center"><b> 读转法 台湾教授发现新天地</b></h1>
-<h2 align="center"><b>“见证 转法轮的神奇”系列报导第一集</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0104-2.jpg"width=640></div><div align="center">台湾国立中山大学教授张美濙</div><p>
- 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<h1 align="center"><b>读《转法轮》 台湾教授发现新天地 </b></h1>
+<h2 align="center"><b>“见证《转法轮》的神奇”系列报导第一集</b></h2>
+<div align="center"><IMG SRC="wnn/img/19-1207-2.jpg"width=640></div><div align="center">台湾国立中山大学教授张美濙</div><p> 
+
 【新唐人北京时间2020年01月03日讯】今年1月4号，是法轮功主要著作《转法轮》首发25周年。这本奇书，自1995年问世后, 迅速在全世界广传, 使上亿人身心受益, 展现了无数的奇迹。下面就请随着我们的系列报导，一起来“见证《转法轮》的神奇”。首先我们来看第一集——台湾国立中山大学教授张美濙的故事。<p>
 
 台湾国立中山大学光电工程学系张美濙教授，从小就是一个对宇宙、生命有着很多问题的人。金字塔到底是怎么来的？黑洞、白洞的奥妙是什么？又为什么会有外星人存在？在她的人生旅程中，始终找不到答案。
