@@ -1,5 +1,5 @@
 
-<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><div align="center"><IMG SRC="wnn/img2/2020-111.jpg"width=880></div><div align="center"></div><p>
+<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><div align="center"><IMG SRC="wnn/img2/2020-120.jpg"width=880></div><div align="center"></div><p>
  
 <div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=640></div><p> 
  
@@ -11,7 +11,7 @@
 
 <div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=640></div><p>
  
-<div align="center"><a target="_blank" href="http://36.227.97.62"><div align="center"><IMG SRC="wnn/img2/2020-113.jpg"width=800></div><div align="center"></div><p>
+<div align="center"><a target="_blank" href="http://36.227.97.62"><div align="center"><IMG SRC="wnn/img2/2020-0113.jpg"width=800></div><div align="center"></div><p>
  
 <div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://36.227.97.62</b></div>
 
@@ -98,7 +98,7 @@
 
 真相如阳光，所到之处，风和日丽。真相如利剑，所行之处，谎言自破，事实尽显。当真相来到你面前，要千万珍惜，需万千珍重，真相是得救的希望，真相是人生的航标，真相是幸福的源泉。人有千算，天有一算，得真相，明真相，是最大的胜算，是永远的福泽。 
  
-原文 http://minghui.tv/mh/articles/2019/12/25/%E7%9B%98%E7%AE%97%E4%B8%8E%E7%AE%97%E7%9B%98-397499.html 
+原文 https://www.minghui.org/mh/articles/2019/12/25/-397499.html
  
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h2 align="center"><b>大学老师和儿子的生命传奇</b></h2>
