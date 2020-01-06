@@ -6,7 +6,10 @@
  
 <div align=center><b>免费突破封锁翻墙软件 https://github.com/gofun72/telove/blob/master/soft.md</b></div>
 
-<div align=center><a href="https://github.com/gofun72/telove/blob/master/soft.md"><b>https://github.com/gofun72/telove/blob/master/soft.md</b></a></div> 
+<div align=center><a href="https://github.com/gofun72/telove/blob/master/soft.md"<b>https://github.com/gofun72/telove/blob/master/soft.md</b></a></div> 
+
+<div align=center><a href="https://github.com/gofun72/telove/blob/master/soft.md"><b>免费突破封锁翻墙软件</b></a></div> 
+
 <p>
 
 <div align=center><a href="https://git.io/epubc"><b>手机上好看的电子书（ePub版）</b></a></div> 
