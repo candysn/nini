@@ -8,12 +8,10 @@
 
 <div align=center><b>手机上好看的电子书（ePub版） https://git.io/epubc</b></div>
 
-<div align=center><a href="https://git.io/epubc">手机上好看的电子书（ePub版）</a></div>
-
 <div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=500></div><p>
  
 <div align="center"><a target="_blank" href="http://36.227.97.62">
-<div align="center"><IMG SRC="wnn/img2/2020-0113.jpg"width=880></div><div align="center"></div><p>
+<div align="center"><IMG SRC="wnn/img2/2020-0113.jpg"width=700></div><div align="center"></div><p>
  
 <div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://36.227.97.62</b></div>
 
