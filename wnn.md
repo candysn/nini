@@ -23,8 +23,8 @@
 
 <a href="https://github.com/candysn/nini/blob/master/wnn-3.md"><b>小之每日真相(三)</a></b>
 
-<div align="center"><a href="https://git.io/9stdz"><IMG SRC="wnn/img/a06.jpg" width=640></a></div>
-
+<div align="center"><a href="https://git.io/9stdz"><IMG SRC="wnn/img2/1114.jpg" width=640></a></div>
+<p>
 
 
 
