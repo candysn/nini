@@ -1,7 +1,7 @@
 
-<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="wnn/img2/2020-120.jpg"width=880></div><p>
+<div align="center"><a target="_blank" href="https://git.io/bb99bbss"><IMG SRC="wnn/img2/1111.jpg"width=880></div><p>
  
-<div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=640></div><p> 
+<div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p> 
  
 <div align=center><a href="https://github.com/gofun72/telove/blob/master/soft.md"><b>免费突破封锁翻墙软件</b></a></div> 
 
@@ -9,13 +9,13 @@
 
 <div align=center><a href="https://git.io/epubc"><b>手机上好看的电子书（ePub版）</b></a></div> 
 
-<div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=640></div><p>
+<div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
  
-<div align="center"><a target="_blank" href="http://36.227.97.62"><IMG SRC="wnn/img2/2020-113.jpg"width=800></div><p>
+<div align="center"><a target="_blank" href="http://36.227.97.62"><IMG SRC="wnn/img2/1113.jpg"width=800></div><p>
  
 <div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://36.227.97.62</b></div>
 
-<div align="center"><IMG SRC="wnn/img2/2020-112.jpg" width=640></div><p>
+<div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
 
 <a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>小之每日真相(一)</a></b>
 
