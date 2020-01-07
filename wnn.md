@@ -38,7 +38,7 @@
 
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
-<h2 align="center"><b>“法轮功坚持到底的精神很了不起！”</b></h2>
+<h2 align="center"><b>内科医师：《转法轮》是我生命中最重要的书</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0107-2.jpg"width=640></div><div align="center">台湾内科医师郑元瑜</div><p> 
 
 【新唐人北京时间2020年01月06日讯】郑元瑜是一位内科医师，事业成功，家庭幸福，但却总觉得人生应该还有更重要的东西，求索中，有幸遇到法轮大法，拜读了《转法轮》之后，终于明白了人生的意义。“见证《转法轮》的神奇”系列报导的第三集, 我们来看郑元瑜的故事。<p>
