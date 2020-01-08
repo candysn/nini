@@ -13,7 +13,7 @@
  
 <div align="center"><a target="_blank" href="http://36.227.97.62"><IMG SRC="wnn/img2/1113.jpg"width=820></div><p>
  
-<div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://36.227.97.62</b></div>
+<div align=center><b>直连不必翻墙 🌼必看 精彩视频http://220.141.128.236/</b></div>
 
 <div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
 
