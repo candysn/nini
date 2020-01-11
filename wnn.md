@@ -36,7 +36,7 @@
 
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
-<h2 align="center"><b一位年轻母亲的告白</b></h2>
+<h2 align="center"><b>一位年轻母亲的告白</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0111-2.jpg"width=640></div><div align="center">本文作者與女兒在一起</div><p> 
 
 【希望之声2020年1月6日】（本台记者慧光综合编译）她叫丹潭（Dan Tam），是一位年轻的越南母亲，也是一位法轮功学员，以下是她在修炼后对管教孩子的体会和领悟。<p>
