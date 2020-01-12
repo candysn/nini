@@ -15,7 +15,7 @@
  
 <div align=center><b>直连不必翻墙 🌼 必看精彩视频 http://111.241.90.121/</b></div>
 
-<h3>🌼必看 精彩视频 请直接点击 http://111.241.90.121</h3></div>
+<a href="XXXXX">放圖或文字都可以</a>
 
 <div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
 
