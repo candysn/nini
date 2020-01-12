@@ -13,7 +13,10 @@
  
 <div align="center"><a target="_blank" href="http://36.227.97.62"><IMG SRC="wnn/img2/1113.jpg"width=820></div><p>
  
-<div align=center><b>直连不必翻墙 🌼 必看精彩视频http://111.241.90.121/</b></div>
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频 http://111.241.90.121/</b></div>
+
+<h2>随时连上最新即时IP (新闻视频ip) http://111.241.90.121/</h2>
+
 
 <div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
 
