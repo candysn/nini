@@ -13,9 +13,7 @@
  
 <div align="center"><a target="_blank" href="https://git.io/epubc"><IMG SRC="wnn/img2/1113.jpg"width=820></div><p>
  
-<div align=center><b>直连不必翻墙 🌼 必看精彩视频</b> http://111.241.90.121/</div>
-
-<div align=center><b>直连不必翻墙 🌼必看 精彩视频 http://111.241.90.121/</b></div>
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频 http://111.241.90.121/</b></div>
 
 <div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
 
