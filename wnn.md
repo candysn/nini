@@ -11,9 +11,9 @@
 
 <div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
  
-<div align="center"><a target="_blank" href="http://111.241.90.121/"><IMG SRC="wnn/img2/1115.jpg"width=820></div><p>
+<div align="center"><a target="_blank" href="http://36.228.34.197"><IMG SRC="wnn/img2/1115.jpg"width=820></div><p>
  
-<div align=center><b>直连不必翻墙 🌼 必看精彩视频 http://111.241.90.121/</b></div>
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频 http://36.228.34.197</b></div>
 
 <div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
 
