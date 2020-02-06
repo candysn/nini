@@ -36,8 +36,8 @@
 
 
  
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
-<a name=2> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=2> 
+
 <h2 align="center"><b>他从疑似“武汉肺炎”凶症中走出来 </b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0204-1.jpg"width=640></div><div align="center">在“武汉肺炎”中惊恐和无奈的中国人（图片取自网络）</div><p>
  
@@ -73,8 +73,7 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
-<a name=1>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=1>
  
 <h2 align="center"><b>武汉警察：谢谢法轮功还想着我们 </b></h2>
  
