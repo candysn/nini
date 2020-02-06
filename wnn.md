@@ -25,16 +25,19 @@
 
 <div align="center"><a href="https://git.io/9stdz"><IMG SRC="wnn/img2/1114.jpg" width=640></a></div>
 <p>
+<a name=top>
 
 
 
 
 
+<a href =#2>2.他从疑似“武汉肺炎”凶症中走出来<br>
+<a href =#1>1.武汉警察：谢谢法轮功还想着我们<br>
 
 
-
-
+ 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a name=2> 
 <h2 align="center"><b>他从疑似“武汉肺炎”凶症中走出来 </b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0204-1.jpg"width=640></div><div align="center">在“武汉肺炎”中惊恐和无奈的中国人（图片取自网络）</div><p>
  
@@ -68,7 +71,10 @@
 
 原文https://www.soundofhope.org/post/338884
 
+<a href=#top><h6 align="right">回上方</h6></a>
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a name=2> 
 <h2 align="center"><b>武汉警察：谢谢法轮功还想着我们 </b></h2>
  
 【明慧网二零二零年二月一日】（明慧记者章韵报道）被称为世界史上第二次大鼠疫的是绵延几百年的中世纪欧洲黑死病。那场鼠疫造成几乎七千五百万人死亡，使整个欧洲坠入了世界末日。人们在末日心态中各有选择，有的及时行乐，有的祷告上帝，有的避世远离，有的顽强抗争并帮助他人。<p>
@@ -128,6 +134,8 @@
 最后这位一开始自称“政法委”的男士说：“好，知道了，谢谢！” 
 
 原文https://www.minghui.org/mh/articles/2020/2/1/-400583.html
+
+<a href=#top><h6 align="right">回上方</h6></a>
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
 <h1 align="center"><b>大毒当前要自救——不是秘密的秘密 </b></h1>
