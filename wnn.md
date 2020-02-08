@@ -42,6 +42,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=3> 
  
 <h2 align="center"><b>台湾国父纪念馆前 法轮功真相吸引八方游客</b></h2>
