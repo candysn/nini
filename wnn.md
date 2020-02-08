@@ -46,7 +46,7 @@
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=3> 
  
 <h2 align="center"><b>台湾国父纪念馆前 法轮功真相吸引八方游客</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0208-1.jpg"width=640></div><div align="center"在台北国父纪念馆前游人在阅读法轮功真相展板。（明慧网）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0208-1.jpg"width=640></div><div align="center">在台北国父纪念馆前游人在阅读法轮功真相展板。（明慧网）</div><p>
  
 【大纪元2020年02月04日讯】庚子年新年期间，因武汉肺炎疫情爆发和蔓延，参观台北国父纪念馆的中国游客的人数也大量减少。但法轮功学员一如往常地在园区内传播真相、炼功洪法，让来自四面八方的游人了解法轮功真相。<p>
 
@@ -96,7 +96,7 @@
 
 法轮功学员向他解释，这两者是一样的，只是不同的称呼而已。他很惊讶，这场迫害竟然持续超过了20年。“我感到非常地遗憾与痛苦，这表示你们受苦已经很长时间了，我希望情况尽快尽早地改变！”
 
-原文台湾国父纪念馆前 法轮功真相吸引八方游客
+原文https://www.epochtimes.com/gb/20/2/4/n11843885.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
