@@ -42,8 +42,7 @@
 
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=6> 
- 
-<h2 align="center"><b>她从肺癌绝症中重生</b></h2>
+ <h2 align="center"><b>她从肺癌绝症中重生</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0211-1.jpg"width=640></div><div align="center">法轮功学员在江边炼功（网络照片）</div><p>
 
 【希望之声2020年2月4日】（本台记者慧光综合报导）她是中国大陆吉林省农村人，丈夫是一名木匠。2004年跟随丈夫在长春市打工，不料却在此地经历了人生中的一场大灾难，如果不是因为做出了正确选择，恐怕早已撒手人寰，与家人阴阳两隔了。<p>
