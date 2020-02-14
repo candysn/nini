@@ -27,21 +27,83 @@
 <div align="center"><a href="https://git.io/9stdz"><IMG SRC="wnn/img2/1114.jpg" width=640></a></div>
 <p>
 
+<a href =#75>75.她从肺癌绝症中重生</a><br>
+<a href =#74>74.欲摆脱瘟疫 先远离红魔</a><br>
+<a href =#73>73.乱世中看清中共邪恶 中国民众踊跃“三退”</a><br>
+<a href =#72>72.台湾国父纪念馆前 法轮功真相吸引八方游客</a><br>
+<a href =#71>71.他从疑似“武汉肺炎”凶症中走出来</a><br>
+<a href =#70>70.武汉警察：谢谢法轮功还想着我们</a><br>
+<a href =#69>69.大毒当前要自救——不是秘密的秘密</a><br>
+<a href =#68>68.一位弱女子的大善之举</a><br>
+<a href =#67>67.疫情中请牢记法轮大法好</a><br>
+<a href =#66>66.神奇中的领悟——一位中学教师讲述的故事</a><br>
+<a href =#65>65.灵魂出窍方醒悟 大难临头有转机</a><br>
+<a href =#64>64.【新闻看点】开年飞黑天鹅 武汉肺炎全球警报...如何预防保命？</a><br>
+<a href =#63>63.读《转法轮》澳洲西人找到生命意义</a><br>
+<a href =#62>62.栽赃自焚案 中共害全国</a><br>
+<a href =#61>61.走出绝境的白血病姑娘</a><br>
+<a href =#60>60.泛滥的酷刑迫害</a><br>
+<a href =#59>59.药学博士气喘缠身 读《转法轮》顽疾消</a><br>
+<a href =#58>58.台北法轮功学员齐聚贺岁 向李洪志大师拜年</a><br>
+<a href =#57>57.一位年轻母亲的告白</a><br>
+<a href =#56>56.中共迫害无辜老人 丧尽天良</a><br>
+<a href =#55>55.内科医师：《转法轮》是我生命中最重要的书</a><br>
+<a href =#54>54.“法轮功坚持到底的精神很了不起！”</a><br>
+<a href =#53>53.读《转法轮》 台湾教授发现新天地</a><br>
+<a href =#52>52.盘算与算盘</a><br>
+<a href =#51>51.大学老师和儿子的生命传奇</a><br>
+<a href =#50>50.读书被关押的奇闻</a><br>
+<a href =#49>49.见证生命奇迹 感悟幸福荣耀</a><br>
+<a href =#48>48.恶徒猖狂 苍天必惩</a><br>
+<a href =#47>47.圣诞节 寻平安</a><br>
+<a href =#46>46.酷吏之母的告诫</a><br>
+<a href =#45>45.律师：为法轮功学员做无罪辩护无悔</a><br>
+<a href =#44>44.严重脑血栓病人神奇康复记</a><br>
+<a href =#43>43.自由门使用小技巧</a><br>
+<a href =#42>42.博士生的蜕变</a><br>
+<a href =#41>41.与众不同的大学老师</a><br>
+<a href =#40>40.法轮功反迫害建立了选择善恶的标准</a><br>
+<a href =#39>39.台湾“卡拉OK店”老板娘的故事</a><br>
+<a href =#38>38.一位大陆律师与司法局律协的对话——写给世界律师大会</a><br>
+<a href =#37>37.共产党凭什么统治中国</a><br>
+<a href =#36>36.神奇的事儿总也说不完【音频】</a><br>
+<a href =#35>35.生命的感恩——一位将死的医生活过来了【音频】</a><br>
+<a href =#34>34.台湾民众：法轮功了不起</a><br>
+<a href =#33>33.法轮功再递交名单 人权迫害者当悬崖勒马</a><br>
+<a href =#32>32.“真、善、忍”一定会传遍全世界——一位越南机长的自述</a><br>
+<a href =#31>31.一朵“小莲花”带来了改变命运的机缘</a><br>
+<a href =#30>30.中共鼓励警察作恶 抓法轮功有指标 多记奖</a><br>
+<a href =#29>29.浊世中的清流</a><br>
+<a href =#28>28.从百人围观九岁儿童被打死说起</a><br>
+<a href =#27>27.从港警施暴说起</a><br>
+<a href =#26>26.她体验到了真实不虚的因果报应</a><br>
+<a href =#25>25.中共为什么敢肆无忌惮蹂躏血溅香港</a><br>
+<a href =#24>24.一位中国军官的肺腑之言【音频】</a><br>
+<a href =#23>23.生命的升华——记一位年轻的大学讲师</a><br>
+<a href =#22>22.我和国人欠法轮功一个道歉</a><br>
+<a href =#21>21.信不信由你</a><br>
+<a href =#20>20.香港响彻“天灭中共” 谁替天行道？</a><br>
+<a href =#19>19.被称为“大哥”的年轻女孩</a><br>
+<a href =#18>18.锲而不舍揭露中共 法轮功值得感谢</a><br>
+<a href =#17>17.“超模”的控诉——“我要为无声者发声”</a><br>
+<a href =#16>16.通告如天网　恶徒岂能逃</a><br>
+<a href =#15>15.在家暴中成长、事业有成的年轻人为什么做出了新的人生选择</a><br>
+<a href =#14>14.莫待报应悔恨迟</a><br>
+<a href =#13>13.一名高中女教师的快乐人生【音频】</a><br>
+<a href =#12>12.从博物馆赝品谈自焚伪案</a><br>
+<a href =#11>11.二十载游戏狂人脱瘾记【音频】</a><br>
+<a href =#10>10.迫害未停歇 世人快退党</a><br>
+<a href =#9>9.从优秀军官到一再被挽留的国企高管【音频】</a><br>
+<a href =#8>8.迫害优秀大学生 再证中共邪恶</a><br>
+<a href =#7>7.好莱坞大奖获得者 一位北京青年的音乐路</a><br>
+<a href =#6>6.她为何执着的还一笔“良心债”</a><br>
+<a href =#5>5.一名数学女教师的好人好运</a><br>
+<a href =#4>4.全球掀反共潮 台立委吁中国人把握机会三退</a><br>
+<a href =#3>3.从仇恨中走出来的私企女老板</a><br>
+<a href =#2>2.麦康奈尔：共产党是十几亿中国人悲剧根源</a><br>
+<a href =#1>1.生命尽头的阳光——记一位设计师的沧桑历程【音频】</a><br>
 
-
-<a href =#2>6.她从肺癌绝症中重生<br>
-<a href =#2>5.欲摆脱瘟疫 先远离红魔<br>
-<a href =#2>4.乱世中看清中共邪恶 中国民众踊跃“三退”<br>
-<a href =#2>3.台湾国父纪念馆前 法轮功真相吸引八方游客<br>
-<a href =#2>2.他从疑似“武汉肺炎”凶症中走出来<br>
-<a href =#1>1.武汉警察：谢谢法轮功还想着我们<br>
-
-
-
-
-
-
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=6> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=75> 
  <h2 align="center"><b>她从肺癌绝症中重生</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0211-1.jpg"width=640></div><div align="center">法轮功学员在江边炼功（网络照片）</div><p>
 
@@ -101,7 +163,7 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=5> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=74> 
  <h2 align="center"><b>欲摆脱瘟疫 先远离红魔</b></h2>
 
 【大纪元2020年02月10日讯】武汉肺炎自去年十二月初爆发后，中共从地方到中央不但掩盖疫情、抓捕传播真实信息的医护人员，还宣称疫情“可防可控”、无“人传人”现象云云，致使疫情迅速蔓延到中国大陆全境及其它三十个国家。疫情持续延烧，迄今中共报出中国境内已超过34600例确诊，死亡超过723例，外界质疑真实数字恐不止于此。<p>
@@ -128,7 +190,7 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=4> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=73> 
  
 <h2 align="center"><b>乱世中看清中共邪恶 中国民众踊跃“三退”</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0208-2.jpg"width=640></div><div align="center">2018年5月11日在美国曼哈顿举行的游行活动。</div><p>
@@ -219,7 +281,7 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=3> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=72> 
  
 <h2 align="center"><b>台湾国父纪念馆前 法轮功真相吸引八方游客</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0208-1.jpg"width=640></div><div align="center">在台北国父纪念馆前游人在阅读法轮功真相展板。（明慧网）</div><p>
@@ -277,9 +339,9 @@
 <a href=#top><h6 align="right">回上方</h6></a>
 
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=2> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=71> 
 
-<h2 align="center"><b>他从疑似“武汉肺炎”凶症中走出来 </b></h2>
+<h2 align="center"><b>他从疑似“武汉肺炎”凶症中走出来</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0204-1.jpg"width=640></div><div align="center">在“武汉肺炎”中惊恐和无奈的中国人（图片取自网络）</div><p>
  
 【希望之声2020年2月2日】（本台记者慧光综合报导）他是中国大陆山东人，在政府机关上班，人处中年，身体健康，在当前“武汉肺炎”肆虐全国的时候，出现了与之十分相似的症状，然而在妻子的引导下他硬是闯了过来，走过了一大难关，他的经历值得国人借鉴。<p>
@@ -314,7 +376,7 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=1>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=70>
  
 <h2 align="center"><b>武汉警察：谢谢法轮功还想着我们 </b></h2>
  
@@ -378,7 +440,7 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=69>
 <h1 align="center"><b>大毒当前要自救——不是秘密的秘密 </b></h1>
 <h2 align="center"><b>从逾越节看武汉肺炎 </b></h2> 
 <div align="center"><IMG SRC="wnn/img2/20-0201-1.jpg"width=640></div><div align="center">佛光庇护的是真正信神的人（图片：pixabay)</div><p>
@@ -421,7 +483,9 @@
 
 原文https://www.soundofhope.org/post/337240
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=68>
 <h2 align="center"><b>一位弱女子的大善之举 </b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0201-5.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
 
@@ -483,7 +547,9 @@
 
 原文https://www.soundofhope.org/post/327091
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=67>
 <h2 align="center"><b>疫情中请牢记法轮大法好 </b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0128-2.jpg"width=640></div><div align="center">法轮大法的九字吉言能保您平安。（明慧网）</div><p>
  
@@ -539,7 +605,9 @@
  
 原文https://www.epochtimes.com/gb/20/1/25/n11821049.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=66>
 <h2 align="center"><b>神奇中的领悟——一位中学教师讲述的故事 </b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0128-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p> 
  
@@ -577,7 +645,9 @@
 
 原文 https://www.soundofhope.org/post/334096
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=65>
 <h2 align="center"><b>灵魂出窍方醒悟 大难临头有转机 </b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0123-3.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p> 
  
@@ -619,7 +689,9 @@
 
 原文https://www.soundofhope.org/post/334690
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=64>
 <h2 align="center"><b>【新闻看点】开年飞黑天鹅 武汉肺炎全球警报...如何预防保命？ </b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0123-1.jpg"width=640></div><div align="center">图为2020年1月21日的北京地铁站：武汉肺炎令人们忧心忡忡。(Kevin Frayer/Getty Images)</div><p> 
  
@@ -773,7 +845,9 @@ SARS功臣钟南山前天表示，虽然不清楚究竟传给人的是什么动�
 
 原文https://www.epochtimes.com/gb/20/1/22/n11813912.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=63>
 <h2 align="center"><b>读《转法轮》澳洲西人找到生命意义</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0121-2.jpg"width=640></div><div align="center">2018年11月24日，约5,400名法轮功学员在台北自由广场排出巨幅的英译本《转法轮》。（明慧网）</div><p> 
 
@@ -861,7 +935,9 @@ SARS功臣钟南山前天表示，虽然不清楚究竟传给人的是什么动�
 
 原文http://www.epochtimes.com/gb/20/1/10/n11782021.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=62>
 <h2 align="center"><b>栽赃自焚案 中共害全国</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0121-1.jpg"width=640></div><div align="center">2001年1月23日，在北京天安门广场，一个由中共自编自导“法轮功学员自焚求圆满”的事件，震惊世界。18年后，一部纪录片《欺世伪火》揭开了自焚伪案的黑幕和来龙去脉。（纪录片《欺世伪火》介绍篇视频截图）</div><p> 
  
@@ -911,7 +987,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 
 原文https://www.ntdtv.com/gb/2020/01/19/a102756050.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=61>
 <h2 align="center"><b>走出绝境的白血病姑娘</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0117-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p> 
  
@@ -961,7 +1039,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 
 原文https://www.soundofhope.org/post/331192
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=60>
 <h2 align="center"><b>泛滥的酷刑迫害</b></h2>
  
 【大纪元2020年01月13日讯】明慧网近日报导，法轮功学员陈淑英、周亚芳，目前在辽宁女子监狱遭受非人迫害。陈淑英的手脚被铐在床杆上，不给铺床垫，不给被盖，甚至大小便都不给解铐；周亚芳在寒冷的冬天就只能穿一件单衣、单裤，脚穿一双板鞋，没穿袜子，每天都被“包夹犯人”折磨的痛苦不堪。陈淑英、周亚芳的遭遇，印证了历经漫漫二十年，中共的迫害政策仍继续执行。<p>
@@ -986,7 +1066,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 
 原文http://www.epochtimes.com/gb/20/1/13/n11789473.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=59>
 <h2 align="center"><b>药学博士气喘缠身 读《转法轮》顽疾消</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0114-2.jpg"width=640></div><div align="center">法轮功的主要著作《转法轮》</div><p> 
  
@@ -1026,7 +1108,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 
 原文https://www.ntdtv.com/gb/2020/01/07/a102747468.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=58>
 <h2 align="center"><b>台北法轮功学员齐聚贺岁 向李洪志大师拜年</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0114-1.jpg"width=640></div><div align="center">2020年1月12日，大台北地区部分法轮功学员约500人齐聚中正纪念堂自由广场，向法轮功创始人李洪志先生拜年。（陈柏州／大纪元）</div><p> 
 
@@ -1080,7 +1164,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 
 原文http://www.epochtimes.com/gb/20/1/12/n11788377.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=57>
 <h2 align="center"><b>一位年轻母亲的告白</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0111-2.jpg"width=640></div><div align="center">本文作者與女兒在一起</div><p> 
 
@@ -1126,7 +1212,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 
 原文https://www.soundofhope.org/post/328417
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=56>
 <h2 align="center"><b>中共迫害无辜老人 丧尽天良</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0111-1.jpg"width=640></div><p> 
  
@@ -1162,7 +1250,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 
 原文http://www.epochtimes.com/gb/20/1/10/n11781626.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=55>
 <h2 align="center"><b>内科医师：《转法轮》是我生命中最重要的书</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0107-2.jpg"width=640></div><div align="center">台湾内科医师郑元瑜</div><p> 
 
@@ -1202,7 +1292,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
  
 原文https://www.ntdtv.com/gb/2020/01/05/a102745910.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=54>
 <h2 align="center"><b>“法轮功坚持到底的精神很了不起！”</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0107-1.jpg"width=500></div><div align="center">法轮功学员在台北国父纪念馆园区内摆展板，讲真相。</div><p> 
  
@@ -1239,8 +1331,10 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 有位年迈的老先生骑着自行车来到了真相点旁、向学员竖起了大拇指说：“你们在这里坚持了这么多年，很不容易；孙中山先生创建了中华民国，也很不容易，所以不能让共产党渗透到台湾！你们揭露中共坏事丑事没错！！自由民主法治是普世价值，希望有一天，对岸的中国人也能跟我们一样享有这体制。”
 
 原文https://www.zhengjian.org/node/256221
- 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=53>
 <h1 align="center"><b>读《转法轮》 台湾教授发现新天地 </b></h1>
 <h2 align="center"><b>“见证《转法轮》的神奇”系列报导第一集</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0104-2.jpg"width=640></div><div align="center">台湾国立中山大学教授张美濙</div><p> 
@@ -1276,8 +1370,10 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 张美濙说，大陆经历了文化大革命，中共把很多中国传统文化破坏了，造成很多人对《转法轮》有误解，从而没有机会读到这么好的宝书。这真是太可惜。她希望身边所有的人，都能有幸接触、拜读这本《转法轮》，这是她今生最大的心愿。 
   
 原文  https://www.ntdtv.com/gb/2020/01/02/a102743778.html
-  
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+ 
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=52>
 <h2 align="center"><b>盘算与算盘</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0104-1.jpg"width=640></div><div align="center"></div><p>
  
@@ -1305,7 +1401,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
  
 原文 https://www.minghui.org/mh/articles/2019/12/25/-397499.html
  
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=51>
 <h2 align="center"><b>大学老师和儿子的生命传奇</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0101-2.jpg"width=640></div><div align="center">修炼法轮功的母子在打坐炼功（网络照片）</div><p>
  
@@ -1342,8 +1440,10 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 修炼法轮大法，使我身心健康，宽容善良，心灵净化了，道德提升了，与之前相比判若两人。同时因为修炼我儿子的人生也改变了，前途一片光明，我的家庭也和睦了。大法修炼让我们获益良多，真是修炼前后两重天！ 
  
 原文 https://www.soundofhope.org/post/325345
- 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=50>
 <h2 align="center"><b>读书被关押的奇闻</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0101-1.jpg"width=640></div><div align="center">中为法轮大法主要著作《转法轮》英文版，左右分别为法轮大法炼功音乐和教功光碟。（天梯书店）</div><p>
  
@@ -1378,8 +1478,10 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 本文只代表作者的观点和陈述。
 
 原文https://www.ntdtv.com/gb/2019/12/30/a102740827.html
- 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+
+ <a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=49>
 <h2 align="center"><b>见证生命奇迹 感悟幸福荣耀</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1229-2.jpg"width=640></div><div align="center">66岁的张瑞兰每日神采飞扬。她和小孙子在一起。（明慧网）</div><p>
  
@@ -1467,7 +1569,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 
 原文http://www.epochtimes.com/gb/19/12/16/n11726522.htm
  
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=48>
 <h2 align="center"><b>恶徒猖狂 苍天必惩</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1229-1.jpg"width=640></div><div align="center">时事评论（明慧网）</div><p>
  
@@ -1498,8 +1602,10 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 转自明慧网 
 
 原文https://www.ntdtv.com/gb/2019/12/26/a102738121.html
-  
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=47>
 <h2 align="center"><b>圣诞节 寻平安</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1224-1.jpg"width=640></div><div align="center">三退大潮。（林乐予、李莎／大纪元）</div><p>
  
@@ -1530,8 +1636,10 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 由此观之，在当今中国社会里，法轮功学员传递真相、澄清事实是真正的“报佳音”，“三退”是走向平安幸福的坦途。在充满平安喜乐的圣诞前夕，衷心祝愿世人了解真相，不要参与这场迫害，以保护自己和家人﹔请牢记“法轮大法好、真善忍好”，善待法轮功学员，尽快退出中共的党团队组织。只要坚守良知善念，顺应天意，神佛就会帮助世人清除红魔。坚定的走在神指向的道路上，必定会得到上天的护佑和福报。
  
 原文 http://www.epochtimes.com/gb/19/12/19/n11732082.htm
- 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=46>
 <h2 align="center"><b>酷吏之母的告诫</b></h2>
  
 【明慧网二零一九年十二月二十三日】严延年是汉朝有名的酷吏，东海郡人。他任河南郡太守期间，到了冬天行刑的时候，他命令下属各县把囚犯解送到郡上，集中统一处死，常常血流成河。河南郡人称他为“屠伯”（屠夫之意）。<p>
@@ -1551,8 +1659,10 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 奉劝那些迫害过大法的人，赶快住手，将功补过，神佛慈悲，将赎你之罪。也请国人劝阻家人，不要参与迫害大法，为自己和家人选择未来吧。 
  
 原文 http://www.minghui.org/mh/articles/2019/12/23/-397394.html
- 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=45>
 <h2 align="center"><b>律师：为法轮功学员做无罪辩护无悔</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1220-1.jpg"width=640></div><div align="center"></div><p>
  
@@ -1584,7 +1694,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 
 原文http://www.minghui.org/mh/articles/2019/12/19/-397223.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=44>
 <h2 align="center"><b>严重脑血栓病人神奇康复记</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1220-2.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
 
@@ -1628,7 +1740,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 
 原文https://translate.google.com/translate?hl=zh-TW&sl=zh-CN&tl=zh-CN&u=https%3A%2F%2Fm.soundofhope.org%2Fpost%2F322375%3Flang%3Db5&sandbox=1
 
- <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+ <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=43>
 <h2 align="center"><b>自由门使用小技巧</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1217-2.jpg"width=640></div><div align="center">中共当局升级防火墙，收紧封堵海外互联网。但“自由门”或“无界浏览”等破网软件，正在中国大陆广泛流传，帮助民众突破中共网络封锁。图为法轮功学员研发的五大破网软件，其中代表“自由门”软件的图标为一只和平鸽。（大纪元图片）</div><p>
  
@@ -1653,7 +1767,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
  
 原文http://www.epochtimes.com/gb/19/12/13/n11720180.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=42>
 <h2 align="center"><b>博士生的蜕变</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1217-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
  
@@ -1689,7 +1805,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
  
 原文https://www.soundofhope.org/post/321520
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=41>
 <h2 align="center"><b>与众不同的大学老师</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1214-2.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
  
@@ -1725,7 +1843,9 @@ http://big5.minghui.org/mh/article_images/2018-1-30-zifen-truth-01.jpg
 
 原文https://www.soundofhope.org/post/320476
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=40>
 <h2 align="center"><b>法轮功反迫害建立了选择善恶的标准 </b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1214-1.jpg"width=640></div><div align="center">法轮功学员李祥春博士发言。（林乐予／大纪元）</div><p> 
    
@@ -1780,7 +1900,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文http://www.epochtimes.com/gb/19/12/12/n11718771.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=39>
 <h2 align="center"><b>台湾“卡拉OK店”老板娘的故事 </b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1210-1.jpg"width=640></div><div align="center">台湾法轮功学员紫云。（明慧网）</div><p> 
  
@@ -1868,9 +1990,11 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文http://www.epochtimes.com/gb/19/12/7/n11706782.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=38>
 <h1 align="center"><b>一位大陆律师与司法局律协的对话 </b></h1>
-<h2 align="center"><b>一位大陆律师与司法局律协的对话 </b></h2>
+<h2 align="center"><b>——写给世界律师大会 </b></h2>
  
 【大纪元2019年12月09日讯】《刑事诉讼法》第35条：律师的职责辩护人的责任是根据事实和法律，提出证明犯罪嫌疑人、被告人无罪、罪轻或者减轻、免除其刑事责任的材料和意见，维护犯罪嫌疑人、被告人的合法权益。<p>
 
@@ -1923,7 +2047,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文http://www.epochtimes.com/gb/19/12/9/n11709675.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=37>
 <h2 align="center"><b>共产党凭什么统治中国 </b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1207-2.jpg"width=640></div><div align="center">8月11日，美国白宫的“我们人民（We the People）”请愿网站上，有人发起连署活动，要求白宫把中国共产党正式列为“恐怖组织”。目前已超过10万人联署。（大纪元合成）</div><p> 
 
@@ -1965,7 +2091,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文https://www.soundofhope.org/post/316286?lang=b5
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=36>
 <h2 align="center"><b>神奇的事儿总也说不完【音频】 </b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1207-1.jpg"width=640></div><div align="center"></div><p> 
  
@@ -1997,7 +2125,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文https://www.soundofhope.org/post/316286
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=35>
 <h2 align="center"><b>生命的感恩——一位将死的医生活过来了【音频】 </b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1203-2.jpg"width=640></div><div align="center"></div><p> 
 
@@ -2039,7 +2169,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文https://m.soundofhope.org/post/316979
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=34>
 <h2 align="center"><b>台湾民众：法轮功了不起 </b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1203-1.jpg"width=640></div><div align="center">台湾国父纪念馆园区内，法轮功真相展板吸引游客阅读</div><p>
 
@@ -2081,7 +2213,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文https://www.zhengjian.org/node/255472
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=33>
 <h2 align="center"><b>法轮功再递交名单 人权迫害者当悬崖勒马 </b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1201-3.jpg"width=640></div><div align="center">中共落马百“虎”盘点：近半在迫害法轮功恶人榜上。（大纪元制图）</div><p>
  
@@ -2112,7 +2246,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
  
 原文 http://www.epochtimes.com/gb/19/11/30/n11691349.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=32>
 <h1 align="center"><b>“真、善、忍”一定会传遍全世界 </b></h1>
 <h2 align="center"><b>——一位越南机长的自述 </b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1201-1.jpg"width=640></div><div align="center">越南机长阮俊勇在飞行中</div><p>
@@ -2171,7 +2307,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文https://www.soundofhope.org/post/316622?lang=b5
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=31>
 <h2 align="center"><b>一朵“小莲花”带来了改变命运的机缘 </b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1126-2.jpg"width=640></div><div align="center">洪多恩（Doan Thi Hong）女士与小莲花</div><p>
  
@@ -2216,7 +2354,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文https://www.soundofhope.org/post/314603
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=30>
 <h2 align="center"><b>中共鼓励警察作恶 抓法轮功有指标 多记奖 </b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1126-1.jpg"width=640></div><div align="center">是谁破坏了幸福的家庭（明慧网漫画）</div><p>
  
@@ -2260,7 +2400,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文https://www.soundofhope.org/post/316013
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=29>
 <h1 align="center"><b>浊世中的清流</b></h1>
 <h2 align="center"><b>——记一位在金融界工作的八零后女性</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1124-2.jpg"width=640></div><div align="center">长沙9岁男童被折磨打死，围观者无人施救。</div><p>
@@ -2301,7 +2443,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文https://www.soundofhope.org/post/316070
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=28>
 <h2 align="center"><b>从百人围观九岁儿童被打死说起</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1124-1.jpg"width=640></div><div align="center">长沙9岁男童被折磨打死，围观者无人施救。</div><p>
  
@@ -2356,7 +2500,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
  
 原文http://www.epochtimes.com/gb/19/11/12/n11651030.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=27>
 <h2 align="center"><b>从港警施暴说起</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1119-2.jpg"width=640></div><div align="center">从港警施暴说起（网络照片）</div><p>
  
@@ -2385,7 +2531,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文https://www.zhengjian.org/node/255224
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=26>
 <h2 align="center"><b>她体验到了真实不虚的因果报应</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1119-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
 
@@ -2435,7 +2583,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文http://www.soundofhope.org/gb/2019/11/11/n3327978.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=25>
 <h2 align="center"><b>中共为什么敢肆无忌惮蹂躏血溅香港</b></h2>
 <div align="center"><IMG SRC="wnn/img/19-1118-2.jpg"width=640></div><div align="center">警察于2019年11月11日在香港西湾河区发射催泪瓦斯。一名警察向一名蒙面抗议者开枪，这是自五个多月前抗暴运动爆发以来，香港发生的最激烈的冲突之一。（DALE DE LA REY/AFP via Getty Images）</div><p>
 
@@ -2473,7 +2623,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文https://www.ntdtv.com/gb/2019/11/11/a102704817.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=24>
 <h2 align="center"><b>一位中国军官的肺腑之言【音频】</b></h2>
   <div align="center"><IMG SRC="wnn/img/19-1118-1.jpg"width=640></div><div align="center">敢于独立思考和说真话的军官（网络照片）</div><p>
    
@@ -2509,10 +2661,11 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 他说：“我们曾经耻笑过那些在历史上因为恐惧而去附和指鹿为马的人，也曾耻笑过那些墙头草随风倒的人，在对待法轮功的态度上，很多人都是害怕权贵在高压下违心的表态，说违心的话，做违心的事，宁愿干那种与被历史耻笑过的人相同的行为。可是中国有句老话：人在做，天在看。一个在权力和金钱面前肯于折腰的人，有什么颜面立足于世？有什么颜面面对家人和朋友？当真相大白于天下的时候，有什么颜面面对自己过往的历史？我想说的是，人啦，千万莫要因为自己的一个错念，毁了自己生命的永远。”
 
-
 原文http://www.soundofhope.org/gb/2019/11/13/n3333354.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=23>
 <h2 align="center"><b>生命的升华——记一位年轻的大学讲师</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1111-2.jpg"width=640></div><div align="center">越南岘港大学校门与该校讲师阮胡南（Nguyen Huu Nhan）</div><p>
  
@@ -2558,7 +2711,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文http://www.soundofhope.org/gb/2019/11/07/n3320304.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=22>
 <h2 align="center"><b>我和国人欠法轮功一个道歉</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1111-1.jpg"width=640></div><div align="center">法轮功在海内外受到民众欢迎，但却被中共迫害抹黑。图为1998年5月沈阳市法轮功学员集体炼功场景（大纪元资料库）</div><p>
  
@@ -2584,7 +2739,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文http://www.epochtimes.com/gb/19/11/10/n11646369.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=21>
 <h2 align="center"><b>信不信由你</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1109-2.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
  
@@ -2624,7 +2781,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文http://www.soundofhope.org/gb/2019/11/05/n3314130.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=20>
 <h2 align="center"><b>香港响彻“天灭中共” 谁替天行道？</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1109-1.jpg"width=640></div><div align="center">2019年11月2日，香港民众打出“天灭中共”的标语牌，在维园举行“112求援国际 坚守自治”大集会，向国际发出求援讯息。（文瀚林／大纪元）</div><p>
 
@@ -2664,7 +2823,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文http://www.epochtimes.com/gb/19/11/3/n11630770.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=19>
 <h2 align="center"><b>被称为“大哥”的年轻女孩</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1105-2.jpg"width=640></div><div align="center">越南年轻的健身教练阮玉艳（Nguyen Thi Ngoc Diem）（Pooja Mor）</div><p>
 
@@ -2698,7 +2859,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
  
 原文http://www.soundofhope.org/gb/2019/10/23/n3280938.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=18>
 <h2 align="center"><b>锲而不舍揭露中共 法轮功值得感谢</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1105-1.jpg"width=640></div><div align="center">2019年7月21，香港，法轮功学员举行反迫害20年大游行。图为“复兴文明善良 回归中华传统”的竖幅。（宋碧龙／大纪元）（Pooja Mor）</div><p>
  
@@ -2726,7 +2889,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
  
 原文http://www.epochtimes.com/gb/19/11/1/n11627189.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=17>
 <h2 align="center"><b>“超模”的控诉——“我要为无声者发声”</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1103-2.jpg"width=640></div><div align="center">旅居纽约的印度裔“超模”普贾穆尔（Pooja Mor）</div><p>
  
@@ -2752,7 +2917,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文http://www.soundofhope.org/gb/2019/11/01/n3304824.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=16>
 <h2 align="center"><b>通告如天网　恶徒岂能逃</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1103-1.jpg"width=640></div><div align="center">（网络照片）</div><p>
  
@@ -2774,7 +2941,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文http://www.minghui.org/mh/articles/2019/11/1/-395290.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=15>
 <h2 align="center"><b>在家暴中成长、事业有成的年轻人为什么做出了新的人生选择</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1029-2.jpg"width=640></div><div align="center">（网络照片）</div><p>
 
@@ -2822,7 +2991,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文http://www.soundofhope.org/gb/2019/10/20/n3271074.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=14>
 <h2 align="center"><b>莫待报应悔恨迟</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1029-1.jpg"width=640></div><div align="center">（网络照片）</div><p>
 
@@ -2850,7 +3021,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文https://www.minghui.org/mh/articles/2019/9/26/-393625.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=13>
 <h2 align="center"><b>一名高中女教师的快乐人生【音频】</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1026-2.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
 
@@ -2900,7 +3073,9 @@ WOIPFG（国际追查迫害法轮功组织）的报告显示，用于资助迫�
 
 原文http://www.soundofhope.org/gb/2019/10/21/n3274695.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=12>
 <h2 align="center"><b>从博物馆赝品谈自焚伪案</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1026-1.jpg"width=640></div><div align="center">2001年1月23日，在北京天安门广场，一个由中共自编自导“法轮功学员自焚求圆满”的事件，震惊世界。18年后，一部纪录片《欺世伪火》揭开了自焚伪案的黑幕和来龙去脉。（纪录片《欺世伪火》介绍篇视频截图）</div><p>
  
@@ -2944,7 +3119,9 @@ http://big5.minghui.org/mh/article_images/2013-6-5-zifen-1.jpg
 
 原文http://www.epochtimes.com/gb/19/10/22/n11603777.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=11>
 <h2 align="center"><b>二十载游戏狂人脱瘾记【音频】</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1022-2.jpg"width=640></div><div align="center">觉醒（图片取自网络）</div><p>
  
@@ -2988,7 +3165,9 @@ http://big5.minghui.org/mh/article_images/2013-6-5-zifen-1.jpg
 
 原文http://www.soundofhope.org/gb/2019/10/11/n3248790.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=10>
 <h2 align="center"><b>迫害未停歇 世人快退党</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1022-1.jpg"width=640></div><div align="center">2019年1月至9月法轮功学员遭中共非法判刑人数按刑期分布示意图。（明慧网）</div><p>
  
@@ -3018,7 +3197,9 @@ http://big5.minghui.org/mh/article_images/2013-6-5-zifen-1.jpg
 
 原文http://www.epochtimes.com/gb/19/10/19/n11599540.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=9>
 <h2 align="center"><b>从优秀军官到一再被挽留的国企高管【音频】</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1017-2.jpg"width=640></div><div align="center">法轮功学员在湖边打坐炼功（网络照片） </div><p>
 
@@ -3068,7 +3249,9 @@ http://big5.minghui.org/mh/article_images/2013-6-5-zifen-1.jpg
 
 原文http://www.soundofhope.org/gb/2019/10/12/n3251859.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=8>
 <h2 align="center"><b>迫害优秀大学生 再证中共邪恶</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1017-1.jpg"width=640></div><div align="center">2017年7月，部分法轮功学员在华盛顿DC烛光悼念在中国大陆被迫害致死的法轮功学员。（石青云／大纪元）</div><p>
  
@@ -3096,7 +3279,9 @@ http://big5.minghui.org/mh/article_images/2013-6-5-zifen-1.jpg
  
 原文 http://www.epochtimes.com/gb/19/10/10/n11580629.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=7>
 <h2 align="center"><b>好莱坞大奖获得者 一位北京青年的音乐路</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1015-2.jpg"width=640></div><div align="center">获好莱坞音乐大奖的北京青年陈东（右）</div><p>
 
@@ -3148,7 +3333,9 @@ http://big5.minghui.org/mh/article_images/2013-6-5-zifen-1.jpg
 
 原文http://www.epochtimes.com/gb/19/10/10/n11580971.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=6>
 <h2 align="center"><b>她为何执着的还一笔“良心债”</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1015-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）(Alex Wong/Getty Images)</div><p>
  
@@ -3202,7 +3389,9 @@ http://big5.minghui.org/mh/article_images/2013-6-5-zifen-1.jpg
 
 原文http://www.soundofhope.org/gb/2019/10/04/n3233774.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=5>
 <h2 align="center"><b>一名数学女教师的好人好运</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1011-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）(Alex Wong/Getty Images)</div><p>
 
@@ -3242,7 +3431,9 @@ http://big5.minghui.org/mh/article_images/2013-6-5-zifen-1.jpg
 
 原文http://www.soundofhope.org/gb/2019/10/09/n3245896.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=4>
 <h2 align="center"><b>全球掀反共潮 台立委吁中国人把握机会三退</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1011-2.jpg"width=640></div><div align="center">台湾立委王定宇，资料照。（陈柏州／大纪元）(Alex Wong/Getty Images)</div><p>
 
@@ -3269,7 +3460,9 @@ http://big5.minghui.org/mh/article_images/2013-6-5-zifen-1.jpg
 
 原文 http://www.epochtimes.com/gb/19/10/9/n11579029.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=3>
 <h2 align="center"><b>从仇恨中走出来的私企女老板</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1008-2.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）(Alex Wong/Getty Images)</div><p>
  
@@ -3317,7 +3510,9 @@ http://big5.minghui.org/mh/article_images/2013-6-5-zifen-1.jpg
 
 原文http://www.soundofhope.org/gb/2019/10/02/n3228351.html
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=2>
 <h2 align="center"><b>麦康奈尔：共产党是十几亿中国人悲剧根源</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1008-1.jpg"width=640></div><div align="center">为参议院共和党领袖麦康奈尔（中）召开记者会。 (Alex Wong/Getty Images)</div><p>
  
@@ -3357,7 +3552,11 @@ http://big5.minghui.org/mh/article_images/2013-6-5-zifen-1.jpg
 
 原文http://www.epochtimes.com/gb/19/10/1/n11561228.htm
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p>
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=1>
 <h2 align="center"><b>生命尽头的阳光——记一位设计师的沧桑历程【音频】</b></h2> 
 <div align="center"><IMG SRC="wnn/img/19-1005-2.jpg"width=640></div><div align="center">法轮功学员同步递交又一批迫害者名单给美加英澳政府</div><p>
  
@@ -3398,3 +3597,5 @@ http://big5.minghui.org/mh/article_images/2013-6-5-zifen-1.jpg
 他说：“虽然我的天目什么也看不见，但我的亲身经历以及妻子和女儿的见证，都让我体悟到法轮大法的神奇和伟大，也更加增强了我修炼的决心和信心。我非常感激师父的慈悲救度！我真实不虚的感受到了佛恩浩荡！但愿佛光普照的天下众生，切莫辜负这万古机缘。”
 
 原文http://www.soundofhope.org/gb/2019/09/21/n3200844.html
+
+<a href=#top><h6 align="right">回上方</h6></a>
