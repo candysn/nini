@@ -12,9 +12,9 @@
 
 <div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
  
-<div align="center"><a target="_blank" href="http://220.141.128.182/"><IMG SRC="wnn/img2/1115.jpg"width=820></div><p>
+<div align="center"><a target="_blank" href="http://36.228.40.87/"><IMG SRC="wnn/img2/1115.jpg"width=820></div><p>
  
-<div align=center><b>直连不必翻墙 🌼 必看精彩视频 http://220.141.128.182/</b></div>
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频 http://36.228.40.87/</b></div>
 
 <div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
 
