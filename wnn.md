@@ -118,7 +118,7 @@
 
 
 
-div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=78> 
+div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=79> 
 <h2 align="center"><b>危难时自救的法宝</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0218-2.jpg"width=640></div><div align="center">“九字真言”顯威力（網絡照片）</div><p>
  
