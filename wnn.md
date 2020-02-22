@@ -161,7 +161,7 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=81>
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=80> 
 <h2 align="center"><b>让“九字真言”家喻户晓</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0222-1.jpg"width=640></div><div align="center">“九字真言”（網絡照片）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0222-1.jpg"width=540></div><div align="center">“九字真言”（網絡照片）</div><p>
  
 【明慧网二零二零年二月二十二日】武汉肺炎传播迅猛，威胁中国人、威胁着人类。为此，在中国，很多城市封城，农村封村，封社区，封街道，封路口，封街口，等等。超市商店、剧院影院、公园饭店、游乐场所，全部封闭。搞得人心惶惶，人人自危，街道上写着火化“垃圾和动物尸体”的大型焚烧炉赫然成排而列。<p>
 
