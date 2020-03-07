@@ -12,11 +12,11 @@
 
 <div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
  
-<div align="center"><a target="_blank" href="http://220.141.130.83/"><IMG SRC="wnn/img2/1115.jpg"width=820></div><p>
+<div align="center"><a target="_blank" href="http://220.141.130.83/"><IMG SRC="wnn/img2/1116.jpg"width=820></div><p>
  
 <div align=center><b>直连不必翻墙 🌼 必看精彩视频 http://220.141.130.83/</b></div>
 
-<div align="center"><IMG SRC="wnn/img2/1117.jpg" width=640></div><p>
+<div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
 
 <a href="https://github.com/candysn/nini/blob/master/wnn-1.md"><b>小之每日真相(一)</a></b>
 
