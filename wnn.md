@@ -133,7 +133,6 @@
 
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=91> 
- 
 <h2 align="center"><b>大疫中觉醒　三退保平安</b></h2>
  
 【明慧网二零二零年三月七日】“本人现在就在武汉，这场瘟疫中，大量的病人无法得到救治，无比凄惨，整个武汉沦为人间炼狱，邪恶的中共不配成为这片土地的执政者。”二月十日，刘辰在大纪元网站发表“三退”（退出中共党、团、队组织）声明时这样说。<p>
@@ -166,12 +165,9 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=91>
 
 原文http://www.minghui.org/mh/articles/2020/3/7/-402111.html
 
-
 <a href=#top><h6 align="right">回上方</h6></a>
 
-
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=90> 
- 
 <h2 align="center"><b>一位湖北老太太的故事</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0310-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
 
@@ -215,9 +211,7 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=90>
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=89> 
- 
 <h2 align="center"><b>奇妙的梦境</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0306-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
 
@@ -257,7 +251,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=89>
 
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=88> 
- 
 <h2 align="center"><b>柏林墙倒塌之前　没人相信它会倒塌</b></h2>
 
 【明慧网二零二零年三月六日】一九八九年十一月九日之前，柏林墙看上去依然坚固，这一年的十月七日东德为建国四十周年举行了豪华阅兵仪式，而在前一年的汉城奥运会上，东德队勇夺奖牌第二名。<p>
@@ -296,11 +289,10 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=88>
 
 原文http://www.minghui.org/mh/articles/2020/3/6/-402076.html
 
- <a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6></a>
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=87> 
- 
-<h2 align="center"><b>首例新冠肺移植 肺源来自哪里？</b></h2>
+ <h2 align="center"><b>首例新冠肺移植 肺源来自哪里？</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0303-2.jpg"width=640></div><div align="center">首例新冠肺移植 肺源来自哪里？（网络照片）</div><p>
 
 【新唐人北京时间2020年03月02日讯】大陆媒体3月1号报导说，中国肺移植专家陈静瑜团队，2月29号在无锡成功进行全球首例新冠肺炎病人双肺移植手术。<p>
@@ -324,7 +316,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=87>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=86> 
- 
 <h2 align="center"><b>一位湖北女性讲述的真实故事</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0303-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
  
@@ -366,10 +357,10 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=86>
 
 原文https://www.soundofhope.org/post/344008
 
- <a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6></a>
+
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=85> 
- 
 <h2 align="center"><b>感染了武汉肺炎的妹妹、妹夫是怎么好的</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0301-2.jpg"width=640></div><div align="center">中国湖北武汉（SOH合成）</div><p>
 
@@ -420,7 +411,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=85>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=84> 
- 
 <h2 align="center"><b>退役炮兵少校的回忆</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0301-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
 
@@ -458,10 +448,9 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=84>
 
 原文https://www.soundofhope.org/post/338548
 
- <a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6></a>
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=83> 
- 
 <h2 align="center"><b>《转法轮》为波兰青年打造全新的生命</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0225-2.jpg"width=640></div><div align="center">波兰青年法比（Fabian）正在炼法轮功第五套功法。（明慧网）	</div><p>
 
@@ -528,7 +517,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=83>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=82> 
- 
 <h2 align="center"><b>瘟疫因何不敢靠近他？</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0225-1.jpg"width=640></div><div align="center">图为2003年萨斯瘟疫爆发后，防疫人员正在对公众场所进行消毒。（PETER PARKS/AFP/GettyImages)</div><p>
 
@@ -573,7 +561,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=82>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=81> 
- 
 <h2 align="center"><b>从肾衰竭和败血症中走出来的湖北青年</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0222-2.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
 
@@ -612,7 +599,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=81>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=80> 
- 
 <h2 align="center"><b>让“九字真言”家喻户晓</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0222-1.jpg"width=540></div><div align="center">“九字真言”（網絡照片）</div><p>
  
@@ -645,7 +631,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=80>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=79> 
- 
 <h2 align="center"><b>危难时自救的法宝</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0218-2.jpg"width=640></div><div align="center">“九字真言”顯威力（網絡照片）</div><p>
  
@@ -712,7 +697,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=78>
  <a href=#top><h6 align="right">回上方</h6></a>
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=77> 
- 
 <h2 align="center"><b>瘟疫肆虐 村长带领全村人“三退”自救</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0214-2.jpg"width=640></div><div align="center">2018年3月，香港法轮功学员举行声援3亿人退出中共党、团、队组织的盛大游行活动。（大纪元） </div><p>
  
@@ -818,7 +802,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=77>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=76> 
- 
 <h2 align="center"><b>绝症非绝路 醒悟有生机</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0214-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
 
@@ -863,7 +846,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=76>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=75> 
- 
 <h2 align="center"><b>她从肺癌绝症中重生</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0211-1.jpg"width=640></div><div align="center">法轮功学员在江边炼功（网络照片</div><p>
 
@@ -924,8 +906,7 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=76>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=74> 
- 
- <h2 align="center"><b>欲摆脱瘟疫 先远离红魔</b></h2>
+<h2 align="center"><b>欲摆脱瘟疫 先远离红魔</b></h2>
 
 【大纪元2020年02月10日讯】武汉肺炎自去年十二月初爆发后，中共从地方到中央不但掩盖疫情、抓捕传播真实信息的医护人员，还宣称疫情“可防可控”、无“人传人”现象云云，致使疫情迅速蔓延到中国大陆全境及其它三十个国家。疫情持续延烧，迄今中共报出中国境内已超过34600例确诊，死亡超过723例，外界质疑真实数字恐不止于此。<p>
 
@@ -952,7 +933,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=76>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=73> 
- 
 <h2 align="center"><b>乱世中看清中共邪恶 中国民众踊跃“三退”</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0208-2.jpg"width=640></div><div align="center">2018年5月11日在美国曼哈顿举行的游行活动。</div><p>
 
@@ -1043,7 +1023,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=76>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=72> 
- 
 <h2 align="center"><b>台湾国父纪念馆前 法轮功真相吸引八方游客</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0208-1.jpg"width=640></div><div align="center">在台北国父纪念馆前游人在阅读法轮功真相展板。（明慧网）</div><p>
  
@@ -1101,7 +1080,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=76>
 
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=71> 
-
 <h2 align="center"><b>他从疑似“武汉肺炎”凶症中走出来</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0204-1.jpg"width=640></div><div align="center">在“武汉肺炎”中惊恐和无奈的中国人（图片取自网络）</div><p>
  
@@ -1138,7 +1116,6 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=76>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=70>
- 
 <h2 align="center"><b>武汉警察：谢谢法轮功还想着我们 </b></h2>
  
 【明慧网二零二零年二月一日】（明慧记者章韵报道）被称为世界史上第二次大鼠疫的是绵延几百年的中世纪欧洲黑死病。那场鼠疫造成几乎七千五百万人死亡，使整个欧洲坠入了世界末日。人们在末日心态中各有选择，有的及时行乐，有的祷告上帝，有的避世远离，有的顽强抗争并帮助他人。<p>
