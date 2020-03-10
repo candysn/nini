@@ -694,7 +694,8 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=78>
 
 原文http://www.minghui.org/mh/articles/2020/2/17/--401308.html
 
- <a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6></a>
+
 
 div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=77> 
 <h2 align="center"><b>瘟疫肆虐 村长带领全村人“三退”自救</b></h2>
@@ -931,6 +932,7 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=76>
 原文https://www.epochtimes.com/gb/20/2/10/n11856968.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
+
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=73> 
 <h2 align="center"><b>乱世中看清中共邪恶 中国民众踊跃“三退”</b></h2>
