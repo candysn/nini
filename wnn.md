@@ -136,7 +136,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=93> 
 <h2 align="center"><b>【一线采访】武汉市民：信共产党没有好下场</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0318-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0318-1.jpg"width=640></div><div align="center">近日，中共高调宣扬方舱医院清零，把丧事当喜事办，为自己歌功颂德的手法，令世界为之咋舌。图为一名病患步出方舱医院。(Stringer/Getty Images)</div><p>
  
 【大纪元2020年03月11日讯】（大纪元记者洪宁、李毅采访报导）一场武汉肺炎瘟疫降临，武汉市民陈洋（化名）和大纪元记者分享发生在他家人间的亲身经历。他说，亲身见识到一辈子听党的话、跟着党走，没有好下场。<p>
 
