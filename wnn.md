@@ -144,7 +144,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=101> 
 <h2 align="center"><b>医学专业人士告诉你：“九字真言”能解中共病毒的力量来自哪里</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0408-1.jpg"width=640></div><div align="center">医学专业人士告诉你：“九字真言”能解中共病毒的力量来自哪里</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0408-2.jpg"width=640></div><div align="center">医学专业人士告诉你：“九字真言”能解中共病毒的力量来自哪里</div><p>
 
 【希望之声2020年4月2日】张虹女士曾在国内从事临床护理25年，是内科肿瘤血液病房的护士长，具有丰富的医学临床护理经验。她读了《细胞生物专家：为什么“九字真言”能解中共病毒》一文后，从病理学和宇宙科学的角度，对“九字真言”能解中共病毒的力量来自哪里，从原理上做了更具体的补充。<p> 
 
