@@ -152,7 +152,7 @@
 
 
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=110> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=111> 
 <h2 align="center"><b>“我把自己交给了法轮功”</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0428-2.jpg"width=640></div><div align="center">法轮功学员在海边打坐炼功（网络照片）</div><p>
 
