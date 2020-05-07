@@ -158,7 +158,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=115> 
 <h2 align="center"><b>由一次聊天引发的故事……</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0507-1.jpg"width=640></div><div align="center">庆祝法轮大法洪传世界28周年</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0507-2.jpg"width=640></div><div align="center">庆祝法轮大法洪传世界28周年</div><p>
 
 【希望之声2020年5月3日】（本台记者慧光综合报导）她生活在中国北京，自己开了一家公司做产品，几年下来竟然风生水起，越做越好，还引起了同行的妒忌。<p>
 
