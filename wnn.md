@@ -12,9 +12,9 @@
 
 <div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
  
-<div align="center"><a target="_blank" href="https://bit.ly/2VIs51L"><IMG SRC="wnn/img2/1116.jpg"width=820></div><p>
+<div align="center"><a target="_blank" href="https://bit.ly/3ezRQKo"><IMG SRC="wnn/img2/1116.jpg"width=820></div><p>
  
-<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/2VIs51L</b></div>
+<div align=center><b>直连不必翻墙 🌼 必看精彩视频https://bit.ly/3ezRQKo</b></div>
 
 <div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
 
