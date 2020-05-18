@@ -186,9 +186,9 @@
  
 给予大费城法轮大法学会的褒奖中写道：“兹证明，应国会议员布莱恩·菲茨帕特里克（Brian Fitzpatrick）的要求， 这面美国国旗于2020年5月13日在美国国会大厦上空飘扬过，以特别表彰大费城法轮大法学会，纪念世界法轮大法日和法轮大法洪传28周年。” 
 
-<div align="center"><IMG SRC="wnn/img2/20-0518-4.jpg"width=640></div><div align="center">5月13日，美国国会议员褒奖法轮大法。（大纪元）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0518-4.jpg"width=550></div><div align="center">5月13日，美国国会议员褒奖法轮大法。（大纪元）</div><p>
  
-<div align="center"><IMG SRC="wnn/img2/20-0518-5.jpg"width=640></div><div align="center">赠送给费城法轮大法学会的两面国旗和褒奖证书。（法轮功学员提供）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0518-5.jpg"width=550></div><div align="center">赠送给费城法轮大法学会的两面国旗和褒奖证书。（法轮功学员提供）</div><p>
  
 在美国国会山挂旗（Capitol Flag Program）的传统始于1937年，当时应一位国会议员的要求在国会山悬挂国旗。多年来，该传统逐渐扩大到包括纪念国定假日和各种特殊事件，以及纪念学校和民间组织等团体的工作。
 
