@@ -176,7 +176,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=127> 
 <h2 align="center"><b>双肺75%坏死的年轻音乐人起死回生谈经历</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0601-1.jpg"width=640></div><div align="center">Joseph, 毕业于美国波士顿伯克利音乐学院，电影配乐专业。（图片来源：新唐人电视台） </div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0601.jpg"width=640></div><div align="center">Joseph, 毕业于美国波士顿伯克利音乐学院，电影配乐专业。（图片来源：新唐人电视台） </div><p>
  
 【希望之声2020年5月24日】（本台记者紫静综合报导）中共病毒（武汉肺炎）全球大爆发，到目前（22日）止，全球确诊感染人数逾522万，死亡人数逾33.5万；迄今没有特效药，在科技如此发达的今天，人类对它却束手无策。<p>
 
