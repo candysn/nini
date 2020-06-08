@@ -182,7 +182,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=132> 
 <h2 align="center"><b>八大调查指证中共强摘人体器官</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0605-1.jpg"width=640></div><div align="center">2019年7月1日，香港七一大游行队伍中的制止中共活摘器官横幅。（宋碧龙／大纪元）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0610-2.jpg"width=640></div><div align="center">2019年7月1日，香港七一大游行队伍中的制止中共活摘器官横幅。（宋碧龙／大纪元）</div><p>
  
 【大纪元2020年06月08日讯】（大纪元记者李辰美国华盛顿DC报导）中共强摘人体器官黑幕2006年首度曝光。14年来，国际社会至少发布了八大调查报告，指证中共强摘法轮功学员和其他良心犯的人体器官。<p>
 
@@ -284,9 +284,9 @@ USCIRF是跨党派独立运作的美国联邦政府机构。美国主流社会�
 
 <a href=#top><h6 align="right">回上方</h6></a>
  
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=132> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=131> 
 <h2 align="center"><b>加大洛杉矶分校教授：法轮功创始人令人敬佩</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0610-2.jpg"width=640></div><div align="center">德国医科大学医学中心项目负责人 夏宁博士。（新唐人电视台）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0605-1.jpg"width=640></div><div align="center">德国医科大学医学中心项目负责人 夏宁博士。（新唐人电视台）</div><p>
  
 <h3 align="center"><b>她是一位优秀的德国华裔医学家，她的事业一帆风顺，可是这一切并不能让她感觉到人生有多美好，因为人再有学识再富有也无法超越生老病死，她希望找到让生命升华美好的路。她1997年得到一本李洪志大师的著作《转法轮》，这本书给了她答案。</b></h3> 
 
