@@ -191,6 +191,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=137> 
 <h2 align="center"><b>一位知名画家的觉醒与蜕变</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0616-1.jpg"width=640></div><div align="center">庆祝法轮大法洪传世界28周年</div><p>
