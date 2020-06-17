@@ -8,7 +8,7 @@
 
 <p>
 
-<div align=center><b>请收藏本网址，连上免翻视频 https://bit.ly/2RQM1hX</b></div>
+<div align=center><b>请收藏本网址，连上免翻视频 https://bit.ly/3ezRQKo</b></div>
 
 <div align="center"><IMG SRC="wnn/img2/1112.jpg" width=640></div><p>
  
