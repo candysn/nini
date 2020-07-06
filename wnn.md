@@ -58,7 +58,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=6> 
 <h2 align="center"><b>大苦大难中的幸福转折</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0706-1.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0706-2.jpg"width=640></div><div align="center">法轮功学员在打坐炼功（网络照片）</div><p>
  
 【希望之声2020年6月28日】（本台记者慧光综合报导）她生活在中国大陆北方的一座城市，是一位中学老师，聪明美丽，健康活泼，不仅教书教得好，活动能力也很强。为了改善自己的生活环境和条件，她多方奔走，用尽心思拉关系走后门，终于将丈夫调入了一个好单位，她也准备从教育口调入市电业局。这次努力为她的人生带来一次重要转变，等于为自己开启了一扇幸福之门。<p>
 
