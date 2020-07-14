@@ -59,6 +59,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=10> 
 <h2 align="center"><b>制止中共器官交易罪恶 奥地利国会通过提案</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0715-1.jpg"width=640></div><div align="center">奥地利议员伊娃·恩斯特-德齐奇（Ewa Ernst-Dziedzic）在7月9日的国民议会上展示了一张“器官价目图表”，表明在中国换取器官各需要多少钱。（视频截图）</div><p>
