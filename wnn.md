@@ -38,7 +38,7 @@
 
 
 <a href =#22>22.内科医师：感受生命真正的美好</a><br>
-<a href =#21>21.“刷脸”</a><br>
+<a href =#21>21.农民北京打工无法适应：“刷脸” https://www.aboluowang.com/2020/0804/1485115.html</a><br>
 <a href =#20>20.鬼畏正神</a><br>
 <a href =#19>19.深受很多大陆人喜欢的歌手 才华横溢善良夫妻的悲惨遭遇</a><br>
 <a href =#18>18.记一位年轻的女科长</a><br>
@@ -129,7 +129,8 @@
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=21> 
-<h2 align="center"><b>“刷脸”</b></h2>
+<h2 align="center"><b>农民北京打工无法适应：“刷脸” https://www.aboluowang.com/2020/0804/1485115.html</b></h2>
+<div align="center"><IMG SRC="wnn/img2/20-0805-3.jpg"width=640></div><div align="center">网络照片</div><p> 
  
 【明慧网二零二零年八月三日】为了活命，俺得去北京打工，老家没有土地了，俺得吃饭填肚子；俺还得养活年迈的父母，这是老祖宗留下的传统。
 俺是“腰缠麻绳”来到北京的，感觉在北京实在太难了，俺穷的就剩一张皮糙肉厚的黄脸了，可俺的脸是真实的，不是假的。<p>
