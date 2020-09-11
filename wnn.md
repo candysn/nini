@@ -38,7 +38,7 @@
 
 
 
-<a href =#44>44.绝症缠身无希望 枯木逢春又重生 </a><br>
+<a href =#44>44.董事长夫人的真挚省思 </a><br>
 <a href =#43>43.律师节与律师劫</a><br>
 <a href =#42>42.翻看大法书　脑膜炎后遗症神奇痊愈 </a><br>
 <a href =#41>41.远离邪党　福相随</a><br>
@@ -92,8 +92,8 @@
 
 
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=42> 
-<h2 align="center"><b>翻看大法书　脑膜炎后遗症神奇痊愈</b></h2>
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=43> 
+<h2 align="center"><b>律师节与律师劫</b></h2>
 
 【明慧网二零二零年九月十日】每年的九月九日，是台湾的“律师节”。律师秉持“法律人”的职责，维护当事人在诉讼程序中的合法权益，是现代文明社会维系公理正义不可或缺的一环，因此律师一向是颇受世人敬重的职业。<p>
 
