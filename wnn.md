@@ -97,7 +97,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=46> 
 <h2 align="center"><b>幸遇“真善忍” 悍妇变淑女”</b></h2>
-<div align="center"><IMG SRC="wnn/img2/0-0916-2.jpg"width=640></div><div align="center">1998年8月20日亚洲体育节在沈阳开幕。图为法轮功学员的方队步入会场。（图源：明慧网）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0916-2.jpg"width=640></div><div align="center">1998年8月20日亚洲体育节在沈阳开幕。图为法轮功学员的方队步入会场。（图源：明慧网）</div><p>
 
 【希望之声2020年9月10日】（本台记者玉洁综合报道）“说她是个泼妇都高抬她了！”过去人们是这样评价亚芳的。<p>
 
@@ -171,7 +171,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=45> 
 <h2 align="center"><b>全家人福报连连 只因诚心敬念“法轮大法好”</b></h2>
-<div align="center"><IMG SRC="wnn/img2/0-0916-1.jpg"width=640></div><div align="center">法轮大法好 （图片：Mingjian）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0916-1.jpg"width=640></div><div align="center">法轮大法好 （图片：Mingjian）</div><p>
 
 【希望之声2020年9月12日】（本台记者金宇综合报道）我家住黑龙江佳木斯，全家人目前只有我一人修炼法轮功。庆幸的是，当家人遇到危难的时候，包括八、九十岁的老人出现生命危险时，我都会告诉他们心诚敬念“法轮大法好”，他们都因此受益了，全家人都看到了法轮大法的神奇和法轮功师父的慈悲。<p>
  
