@@ -96,6 +96,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=46> 
 <h2 align="center"><b>幸遇“真善忍” 悍妇变淑女”</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0916-2.jpg"width=640></div><div align="center">1998年8月20日亚洲体育节在沈阳开幕。图为法轮功学员的方队步入会场。（图源：明慧网）</div><p>
