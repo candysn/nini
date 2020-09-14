@@ -94,6 +94,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=45> 
 <h2 align="center"><b>全家人福报连连 只因诚心敬念“法轮大法好”</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-0916-1.jpg"width=640></div><div align="center">法轮大法好 （图片：Mingjian）</div><p>
