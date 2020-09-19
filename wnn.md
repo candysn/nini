@@ -100,7 +100,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=48> 
 <h2 align="center"><b>国际模特人才公司总监成功之路</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0920-2.jpg"width=640></div><div align="center">国际模特人才公司总监马克•卢伯瑞克（Mark Luburic）（左）（图片本人提供）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0921-2.jpg"width=640></div><div align="center">国际模特人才公司总监马克•卢伯瑞克（Mark Luburic）（左）（图片本人提供）</div><p>
  
 【希望之声2020年9月13日】（本台记者紫静综合报导）马克·卢伯瑞克（Mark Luburic）是一位澳大利亚模特。目前，他是一家人才管理公司的合伙人和总监，为五十多位模特提供代理，公司的一些模特在纽约、巴黎、伦敦和米兰的时尚T台上绽放光彩。马克非常谦卑、友好，对他的成功马克表示，这归功于法轮功的原则“真、善、忍”。
 
@@ -108,7 +108,7 @@
 
 马克曾经梦想着当一位职业足球运动员，但后来成为一位职业模特，前往欧洲、亚洲、中东——一路碰到了很多成功人士。 
 
-<div align="center"><IMG SRC="wnn/img2/20-0920-3.jpg"width=420></div><div align="center">马克·卢伯瑞克职业模特照片。（本人提供/EET）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0921-3.jpg"width=420></div><div align="center">马克·卢伯瑞克职业模特照片。（本人提供/EET）</div><p>
  
 2006年，是他生活发生转折的一年。他和妻子斯托贝（Gunita Stobe）以模特的身份来到印度。他们很快意识到印度和国际市场存在巨大的差距，成立一家以国际标准来运作的模特机构，在这里变得很有必要。
 
@@ -128,7 +128,7 @@
 
 尝试之后，“我没有惊天动地的感觉，但感到一种独特的平静。这让我有意愿继续参加接下来的学习班。3周之后，突然间，我没有任何要喝酒和吸烟的想法。这种感觉令人惊叹。” 
 
-<div align="center"><IMG SRC="wnn/img2/20-0920-4.jpg"width=420></div><div align="center">法轮功是以“真、善、忍”为原则的佛家性命双修功法，包括五套功法动作，祛病健身效果神奇。图为马克·卢伯瑞克在炼法轮功第五套功法。（本人提供／EET）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0921-4.jpg"width=420></div><div align="center">法轮功是以“真、善、忍”为原则的佛家性命双修功法，包括五套功法动作，祛病健身效果神奇。图为马克·卢伯瑞克在炼法轮功第五套功法。（本人提供／EET）</div><p>
  
 朋友建议他读读法轮功的《转法轮》那本书，“一开始阅读，我就迷上了，无法把书放下来，我知道我发现了非常特别的东西。”
 
@@ -160,7 +160,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=47> 
 <h2 align="center"><b>接两通电话 大陆外科主任医生选择退党</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-0920-1.jpg"width=640></div><div align="center">海外法轮功学员声援退出中共党、团、队组织的“三退”大潮。（大纪元）</div><p>
+<div align="center"><IMG SRC="wnn/img2/20-0921-1.jpg"width=640></div><div align="center">海外法轮功学员声援退出中共党、团、队组织的“三退”大潮。（大纪元）</div><p>
  
 【大纪元2020年09月16日讯】（大纪元记者罗琼报导）近日，德国“三退”义工张女士给一位大陆的外科主任医生打了两通电话，给他讲法轮功真相。该医生由开始的反感到后来欣然接受真相退党。<p>
 
