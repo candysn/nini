@@ -107,11 +107,6 @@
 <h2 align="center"><b>能活下来全是因为得到了这个法宝</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-1005-2.jpg"width=550></div><div align="center">难以治愈的怪病“搭背疮”修大法后痊愈了，法轮功修炼祛病健身有神奇功效。（明慧网）</div><p>
 
-
-
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=56> 
-<h2 align="center"><b>她的选择让怪病“搭背疮”远离了她</b></h2>
-<div align="center"><IMG SRC="wnn/img2/20-1007-1.jpg"width=550></div><div align="center">世界100多个国家和地区都有法轮功修炼人，唯有在中国遭受了21年的迫害。（图片：明慧网）</div><p>
  
 【希望之声2020年10月2日】（本台记者詹妮综合报导）我是一个普普通通的黑龙江老太太，今年已经70多岁了。我能活到今天，真是一个神奇，也全是因为我得到了法轮大法这个法宝。
 
@@ -150,6 +145,11 @@
 原文https://www.soundofhope.org/post/427792
 
 <a href=#top><h6 align="right">回上方</h6></a>
+
+
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=56> 
+<h2 align="center"><b>她的选择让怪病“搭背疮”远离了她</b></h2>
+<div align="center"><IMG SRC="wnn/img2/20-1007-1.jpg"width=550></div><div align="center">世界100多个国家和地区都有法轮功修炼人，唯有在中国遭受了21年的迫害。（图片：明慧网）</div><p>
  
 【希望之声2020年9月22日】（本台记者紫静综合报导）有一位北京人，得了一种让人吃惊的很难治愈的怪病：搭背，也叫“搭背疮”。同事知道后都大惊失色。面对亲人和许多人的各种劝告，经过十天的痛苦思考，她横下一条心：人终究会死的，我就信了法轮功了。她就这样走了过来……<p>
 
