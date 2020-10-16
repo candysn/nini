@@ -167,7 +167,7 @@
  <a href=#top><h6 align="right">回上方</h6></a>
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=63> 
-<h2 align="center"><b>“大法的神奇力量使我身心获益”</b></h2>
+<h2 align="center"><b>公安头头说坚决不再参与迫害法轮功了</b></h2>
 <div align="center"><IMG SRC="wnn/img2/20-1019-1.jpg"width=550></div><div align="center">诚念法轮大法好，大难来时命可保；心中牢记真善忍，瘟疫不找善良人。（明慧网）</div><p> 
  
 【明慧网二零二零年十月十三日】我是一个私人诊所的医生。到我诊所来看病买药的除了一些普通百姓外，也有不少公检法司、军方人士和政府工作人员，他们既有本地的，也有外省的，也有来自北京的。<p> 
