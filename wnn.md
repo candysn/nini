@@ -184,7 +184,7 @@
 
 总之，共产主义不是咱们这儿土生土长的，到现在也和我们一点不沾边儿。
 
-原文https://www.minghui.org/mh/articles/2020/10/27/.html
+原文https://www.minghui.org/mh/articles/2020/10/27/-414302.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
