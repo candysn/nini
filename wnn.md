@@ -130,7 +130,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=80> 
 <h2 align="center"><b>一位妙龄女子的曲折人生</b></h3> 
-<div align="center"><IMG SRC="wnn/img2/20-1116-2.jpg"width=550></div><div align="center">绝处逢生的喜悦（图片：pixabay） </div><p>
+<div align="center"><IMG SRC="wnn/img2/20-1116-2-.jpg"width=550></div><div align="center">绝处逢生的喜悦（图片：pixabay） </div><p>
 
 【希望之声2020年11月13日】（本台记者玉洁综合报导）淇淇今年23岁，她家境富裕，父母都是医生，但她短短的人生可谓命运多舛，遭遇了无法治愈的病痛折磨。在全家都绝望之际，她遇到了生命中的贵人，告诉了她一种神奇的方法，使她恢复了正常。
 
