@@ -134,7 +134,7 @@
 
 
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=85> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=86> 
 <h2 align="center"><b>大山深处有人家</b></h2> 
 <div align="center"><IMG SRC="wnn/img2/20-1125-2.jpg"width=550></div><div align="center">法轮功学员绘画：真相福音送山村（明慧网） </div><p>
  
