@@ -139,7 +139,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=88> 
 <h2 align="center"><b>心理医生终于战胜了自己的心理疾病</b></h2> 
-<div align="center"><IMG SRC="wnn/img2/20-1130-2.jpg"width=550></div><div align="center">罗素曾深陷疾病的苦海无法解脱，炼法轮功让她获得健康。图为罗素在炼法轮功第二套功法（图片来源：明慧网 </div><p>
+<div align="center"><IMG SRC="wnn/img2/20-1130-2.jpg"width=550></div><div align="center">罗素曾深陷疾病的苦海无法解脱，炼法轮功让她获得健康。图为罗素在炼法轮功第二套功法（图片来源：明慧网） </div><p>
 
 【希望之声2020年11月26日】（本台记者玉洁综合报导）杰西卡·罗素（Jessica Russo）是位临床心理学医生，在美国费城市中心拥有一家诊所的她，每天忙碌地帮助病患解决各种心理问题。在患者眼中，罗素医生耐心、理性、善解人意，给予他们强大的力量。
 
