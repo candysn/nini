@@ -150,7 +150,7 @@
 
 
 
-div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=102> 
+div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div>align="center"><p><a name=102> 
 <h2 align="center"><b>从“中共首名美籍党员”的经历看今日美国</b></h2> 
 <div align="center"><IMG SRC="wnn/img2/20-1223-2.jpg"width=400></div><div align="center">西德尼·里滕贝格（Sidney Rittenberg，中文名：李敦白）</div><p>
 
