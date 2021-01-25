@@ -169,6 +169,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=122> 
 <h2 align="center"><b>寻寻觅觅终得法 阿勇寻道的故事</b></h2>
 <div align="center"><IMG SRC="wnn/img2/21-0127-2.jpg"width=550></div><div align="center">法轮大法是佛家修炼之法，是高德大法。（图片来源：明慧网）</div><p>
