@@ -173,7 +173,7 @@
 
 
 
-div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=126> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=126> 
 <h2 align="center"><b>两家人经历大悲大喜 令人泪目的故事</b></h2>
 <div align="center"><IMG SRC="wnn/img2/21-0204-2.jpg"width=550></div><div align="center">经历大悲大喜、令人泪目的真实故事，邻家女儿明白真相获得重生，很快就要结婚了。（图片来源：NTDTV示意图）</div><p>
 
@@ -231,7 +231,7 @@ div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=126>
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=125> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=125> 
 <h2 align="center"><b>念“法轮大法好” 武汉老人获救</b></h2>
 <div align="center"><IMG SRC="wnn/img2/21-0204-1.jpg"width=550></div><div align="center">80岁老人被确诊为感染武汉肺炎，诚念九字真言得救。（pixabay）</div><p>
 
