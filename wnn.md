@@ -37,8 +37,8 @@
 
 
 
-<a href =#126>128.肝炎患者神奇康复后回馈社会 </a><br>
-<a href =#125>127.从香山到天安门 罗干为何搞“自焚”？</a><br>
+<a href =#128>128.肝炎患者神奇康复后回馈社会 </a><br>
+<a href =#127>127.从香山到天安门 罗干为何搞“自焚”？</a><br>
 <a href =#126>126.两家人经历大悲大喜 令人泪目的故事 </a><br>
 <a href =#125>125.念“法轮大法好” 武汉老人获救</a><br>
 <a href =#124>124.“我不再害怕瘟疫了” </a><br>
@@ -178,7 +178,7 @@
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=127> 
 <h1 align="center"><b>从香山到天安门 罗干为何搞“自焚”？</b></h1>
 <h2 align="center"><b>——一位女检察官讲述亲身经历</b></h2>
-<div align="center"><IMG SRC="wnn/img2/21-0208-8.jpg"width=550></div><div align="center">（图片来源：网络截图）</div><p>
+<div align="center"><IMG SRC="wnn/img2/21-0208-1.jpg"width=550></div><div align="center">（图片来源：网络截图）</div><p>
 
 【明慧网二零二一年一月三十日】半夜，我在睡梦中被一阵狂烈的砸门声惊醒。“哐哐哐”，剧烈到整个楼都在震动。“是不是地震了？”<p>
 
