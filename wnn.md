@@ -185,6 +185,8 @@
 
 
 
+
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=135> 
 <h1 align="center"><b>党委书记退党记 </b></h1>
 <h2 align="center"><b>——温哥华八旬老太劝退的故事</b></h2> 
