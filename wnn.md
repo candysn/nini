@@ -241,7 +241,7 @@
 
 本文只代表作者的觀點和陳述。
 
-原文宇明：瘟疫引發的思考
+原文https://www.ntdtv.com/b5/2021/03/04/a103067021.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
