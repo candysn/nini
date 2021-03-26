@@ -28,7 +28,7 @@
 
 <a href="https://github.com/candysn/nini/blob/master/wnn-4.md"><b>小之每日真相(四)</a></b>
 
-<a href="https://github.com/candysn/nini/blob/master/wnn-5.md"><b>小之每日真相(四)</a></b>
+<a href="https://github.com/candysn/nini/blob/master/wnn-5.md"><b>小之每日真相(五)</a></b>
 
 <a href="https://git.io/9stdz"><IMG SRC="wnn/img2/1114.jpg" width=640></a></div><p>
 
