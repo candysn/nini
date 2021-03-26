@@ -104,7 +104,8 @@
 
 今年又到了花粉纷飞的季节，我所在的日本，花粉症十分普遍。我讲出自己的亲身经历，如果能让日本民众和其他患有花粉症的人们看到我的经历，对他们可能也会起到一点作用吧。
 
-原文：https://www.soundofhope.org/post/487037（根据明慧网文章改编。原文：https://www.minghui.org/mh/articles/2021/3/21/）
+原文：https://www.soundofhope.org/post/487037
+（根据明慧网文章改编。原文：https://www.minghui.org/mh/articles/2021/3/21/）
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
