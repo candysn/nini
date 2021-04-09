@@ -99,7 +99,7 @@
 
 刘叔对师尊所给予的一切是无法用言语表达，唯有在修炼上更加精進，报答浩荡佛恩。最后，他说：“自己决心修炼到底，按真善忍的要求做，直至修炼圆满。”
 
-原文<a href=#top><h6 align="right">回上方</h6></a>
+原文https://www.minghui.org/mh/articles/2021/3/23/-422457.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
