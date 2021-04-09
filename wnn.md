@@ -69,7 +69,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=20> 
 <h2 align="center"><b>河南焦作老干部：我周围的人都退了</b></h2> 
-<div align="center"><IMG SRC="wnn/img2/21-0414-2.jpg"width=550></div><div align="center">河南焦作老干部：我周围的人都退了</div><p>
+<div align="center"><IMG SRC="wnn/img2/21-0414-2.jpg"width=550></div><div align="center">法轮大法好，真善忍好</div><p>
 
 【明慧网二零二一年四月三日】（明慧记者章韵报道）二零二一年，海外的法轮功学员坚持不懈地打越洋电话给中国大陆的民众，传播真相。不少接到电话的高干明白后表示愿意“三退”（退出中共的党、团、队组织）。有的表示早已看清中共本质、已经退了。<p>
 
