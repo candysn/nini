@@ -71,6 +71,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=23> 
 <h2 align="center"><b>翻墙出去看真实世界 颠覆过往认知</b></h2> 
 <div align="center"><IMG SRC="wnn/img2/21-0421-1.jpg"width=550></div><div align="center">翻墙后的中国人，就像鸟儿在天空自由飞翔</div><p>
