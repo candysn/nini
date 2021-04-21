@@ -221,7 +221,7 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=23> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=24> 
 <h2 align="center"><b>不朽的东方文明 令我难忘的气功师</b></h2> 
 <div align="center"><IMG SRC="wnn/img2/21-0421-2.jpg"width=550></div><div align="center">由于认真修炼心性，这么多年来，没有生过病，身体一直都很健康。(pixabay) </div><p>
 
