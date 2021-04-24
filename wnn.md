@@ -159,7 +159,7 @@
 
 我遇到个人告诉我“瘟疫是有眼睛的，退党废掉毒誓能保平安。”我非常愿意退出共产党，以前向党委书记提出过，他不同意。现在听说只要心里同意，明明白白地退出共产党，化名也可以，太好啦。
 
-原文https://www.minghui.org/mh/articles/2021/4/12/-423286.html
+原文https://www.minghui.org/mh/articles/2021/4/12/“为自己的党员身份而羞愧”-423286.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
