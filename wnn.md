@@ -77,6 +77,7 @@
 
 
 
+
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=28> 
  <h2 align="center"><b>澳学者：“4.25”事件引我开始了解法轮功</b></h2> 
 <div align="center"><IMG SRC="wnn/img2/21-0428-2.jpg"width=550></div><div align="center">4月19日，澳洲中国问题学者、悉尼大学社会学博士秦晋表示，“4.25”上访事件对他震动很大，向他打开了解法轮功的一扇大门。（Adam Chiang/大纪元） </div><p>
