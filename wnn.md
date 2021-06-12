@@ -105,7 +105,7 @@
 
 “虽然不是每个人都会马上开始修炼法轮大法，但我希望每个人都能从这一天中受益，因为真、善、忍的原则真的可以帮助人。”蒂埃内的活动在热烈的掌声中圆满的地结束了。
 
-http://en.minghui.org/html/articles/2021/6/11/193652.html
+https://www.minghui.org/mh/articles/2021/6/8/-426717.html
   
 <a href=#top><h6 align="right">回上方</h6></a>  
   
