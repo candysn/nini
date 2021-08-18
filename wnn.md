@@ -112,8 +112,61 @@
  
  
 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=61> 
+<h2 align="center"><b>“你们用这种最美的方式，打开了我的眼界”</b></h2>  
  
+【明慧网二零二一年七月三十日】2021年7月8日到24日，在卑诗省温哥华岛，风景秀丽的科文奇山谷波多艺术馆（Portals Gallery）迎来了盼望已久的真善忍美展。在十六天的时间里，大量当地社区民众涌入美展，并且口耳相传，告知自己的亲朋好友。被画作感动的观众们纷纷留言，有观众感谢法轮功学员说：“你们用这种最美的方式，打开了我的眼界……”<p>  
 
+<div align="center"><IMG SRC="wnn/img2/21-0818-1.jpg"width=550></div><div align="center">图：在科文奇山谷波多艺术馆举办的真善忍美展一角</div><p>  
+ 
+科文奇山谷地区以海滨小镇邓肯为中心，景色优美，是卑诗省民夏季旅游、避暑的好去处。波多艺术馆位于邓肯市的科文奇（Cowichan Valley）社区中心，是温哥华最好的专业画廊之一。
+
+法轮功学员在当地媒体刊登了广告，并向当地民众发放了邀请卡。卑诗省在经历了漫长的封锁之后，正重新步入全面开放的阶段，前来观展的人络绎不绝。平时每天50到80人。周末每天100-150人，共计上千人前来观看。邓肯小镇常驻居民不到五千人，整个山谷也只有八万人口，艺术馆馆长告诉美展义工，观展的人流量创下了当地画展的历史记录，她从来没办过这么成功的美术展。看到社区民众对真善忍美展反应热烈，她感到能为美展提供场地非常荣幸。
+
+此次画展共展出了二十三幅精心挑选的作品，其中包含了历届油画大赛的获奖佳作以及加拿大画家的作品。画廊的画家提供了精心的布展设计，一幅幅精美的作品在专业的灯光映衬下，金碧辉煌。真、善、忍的博大精深的内涵，与成熟完善的传统油画技巧的结合使画作散发出神圣庄严、超凡脱俗的美和慈悲纯正的能量，伴随着《济世》、《普度》的柔和音乐，直接打入内心的深处，唤醒人们的良知善念。
+
+在现场许多人感动落泪，有中国移民在现场退出中共党团队，也有人把自己的家人朋友都带来了解真相。有许多人想给法轮功捐款，在得知法轮功不向民众收捐款之后，对法轮功更加敬佩。周末的教功现场许多人慕名而来。
+
+一位日本女士表示，近些年中共炫耀武力让日本人非常反感。通过画展她看到法轮功学员对真、善、忍的坚持，唤醒了上亿中国民众退出中共党团队，让她看到了希望。她说：“我完全支持你们做的事。只有中共解体，世界才能和平。”
+
+一位母亲带着八岁的儿子来看画展，儿子坚持让她买下《震撼》这幅画作的复制品，他说：“因为它完全是金色的”。他为自己做了这个决定感到非常骄傲。
+
+有不少观众表示他们感受到强大的能量和心灵的净化。美展现场义工张女士介绍，一位年轻的男孩在步入画展的时候，带着迷惘的眼神，他在每一幅画作前静静欣赏，看得十分仔细入神，看完后，他直接走向画展的义工，说他想学法轮功。在走出画展的时候，他的脸上满是了解真相后的激动和喜悦，眼神也变得清澈有光。
+
+现场的留言本上写满了激动观众的留言。以下仅摘录几例：
+
+    绝对不可思议的佳作，所有的义工都是那么柔和，（画作中）所有情感的表现都是那么的真实！我发现法轮功学员的平静是那么自然真诚。美丽的作品！——瓦丽特·克鲁格
+    （Absolutely incredible work， all of the fans are incredibly soft and supple， and all of the emotions are VERY raw！ I find the calmness of the Falun Gong practitioners almost uncarving. Beautiful pieces！——-Violet Crugg）
+
+    看到法轮功学员所经历的一切真让人心碎。尽管被迫害，他们仍然表现出慈悲与坚忍。——瑞贝卡·克拉克
+    （It is heartbreaking what Falun Gong have to go through， their resilience & compassion shows despite being persecuted.——Rebecca Clarke）
+
+    崇高，神奇，动人，能改变人。——瑞恩·布瑞玛科姆
+    （Sublime， mystical， moving， transformative----Ray Brimacomb）
+
+    画作中对眼神的刻画太了不起。它超越了语言的障碍，提供了一种视角，让我人性的一面与之相通。绝对感人。——未署名
+    （The captivator in the eyes of the drawings was truly remarkable. It offered an unspoken insight breaking language barriers offering a point of view that made me relate as a person， absolutely touching.）
+
+    精致，感人，很有意义。感谢你们把这种艺术带到岛上来。——乔依·万
+    （Exquisite， Sensational & so meaningful. Thank you so much for bring this art to the Island——Johni Wan）
+
+    你们的画作美丽，深邃，与众不同。——纳达
+    （Your paintings are beautiful， deep and distinctive. ——Nada）
+
+    对迫害的洞察力很惊人，我崇尚你们的信仰和坚韧。——罗斯林·贝尔
+    （Amazing insight into persecution. I honor your religion and perseverance.——Roslin Bell）
+
+    你们用这种最美的方式，打开了我的眼界，让我看到了迫害的真相。绝对爱这个美展。——凯丽
+    （You opened my eyes to the painful truth in the most beautiful way possible. Absolutely loved this exhibit. ——Kaylee）
+
+    非常感人，画中的人物十分美丽。可爱，平静的表情是基于他们内在深厚的信仰。美妙的方式来教育我们，色彩缤纷的画面。还配有文字解释。非常有勇气！——玛丽·布瑞恩
+    （very moving. Beautiful people depicted. lovely， calm expressions based on deep rooted beliefs. Wonderful way to educate us & colorful images. The paintings along with text explanation. Courage！ ——Mary Brian）
+
+笔者在最后一天到达现场时，见到两位女士刚刚走出美展大厅，其中一位指着自己的心说：“这么强的能量，真触及到我心里，我现在还能感受到。我要学法轮功。我留下了联系方式，让他们在邓肯办班时一定联系我。”
+ 
+原文 https://www.minghui.org/mh/articles/2021/7/30/-428905.html
+ 
+<a href=#top><h6 align="right">回上方</h6></a>
  
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=60> 
 <h2 align="center"><b>旧金山工程师找到不用進山入庙的修炼法门</b></h2>  
@@ -161,7 +214,7 @@
 
 随着越来越多学法，按照法的要求做，并且越来越经常炼功，我的身心越感到轻松。我对工作的专注度得到了显著提高，因为我了解到，当我为这份工作获得如此高的报酬时，仅付出一半的努力是不道德的。我必须真正以绝对的勤奋做我的工作。
 
-<b体会每天学法的重要性和美妙</b>
+<b>体会每天学法的重要性和美妙</b>
 
 我还开始每周一次帮助当地英文大纪元办公室将报纸送到当地商店。这个工作可以让我离开电脑的工作，休息一下，并为讲真相的项目做些贡献。这对我来说也是一个与其他同修面对面学法，并向他们学习的好机会，也体会到每天读法的重要性。
 
