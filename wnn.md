@@ -122,7 +122,7 @@
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=69> 
 <h1 align="center"><b>门缝里捡拾的机缘让他重获新生</b></h1>  
 <h2 align="center"><b>——五毒俱全的迷失青年奇遇记</b></h2>  
-<div align="center"><IMG SRC="wnn/img2/21-0903-2.jpg"width=550></div><div align="center">照片取自网络</div><p>  
+<div align="center"><IMG SRC="wnn/img2/21-0903-2.jpg"width=550></div><div align="center">红尘乱世 迷迷茫茫 何处是光明（照片取自网络）</div><p>  
  
 【希望之声2021年8月28日】（本台记者慧光综合报导）<p>  
 
