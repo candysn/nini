@@ -172,7 +172,7 @@
 
 一天，学校校长来看我这个退休教师，我给校长讲了侄女考试多得十二分的小故事和某老师去“转化”法轮功学员，却反被改变的事。校长说这些事她知道。我又给校长讲了大法真相，校长说：“我不反对法轮功，你们一定要多注意安全。
  
-原文：https://window.minghui.org/bo-shi-lao-shi-chuan-shou-mi-jue-quan-ban-gao-kao-fen-shu-ti-gao/
+原文：https://big5.minghui.org/mh/articles/2021/7/16/-427333.html
  
 <a href=#top><h6 align="right">回上方</h6></a>
  
