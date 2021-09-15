@@ -129,7 +129,7 @@
  
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=76> 
 <h2 align="center"><b>丈夫正气震慑邪恶</b></h2>  
-<div align="center"><IMG SRC="wnn/img2/21-0917-1.jpg"width=550></div><div align="center">照片取自网络 </div><p> 
+<div align="center"><IMG SRC="wnn/img2/21-0917-1(1).jpg"width=550></div><div align="center">照片取自网络 </div><p> 
  
 【明慧网二零二一年九月十四日】二零一五年五月，中共最高法院宣布所谓“有案必立，有诉必理”，法轮功学员纷纷起诉发起这场迫害的恶首江泽民。多地大法弟子由于起诉江泽民，遭到610、派出所人员的骚扰，甚至绑架。<p> 
 
