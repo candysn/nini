@@ -136,7 +136,7 @@
  
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=81> 
 <h2 align="center"><b>一位漂亮的越南女孩经历的家庭意外变化</b></h2>  
-<div align="center"><IMG SRC="wnn/img2/21-0923-2.jpg"width=550></div><div align="center>"越南女孩邓晓（đảng hiểu）（DKN.tv） </div><p>
+<div align="center"><IMG SRC="wnn/img2/21-0923-2.jpg"width=550></div><div align="center">越南女孩邓晓（đảng hiểu）（DKN.tv） </div><p>
  
 希望之声2021年9月22日】（本台记者慧光综合编译）<p>
 
