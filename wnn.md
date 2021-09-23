@@ -40,6 +40,7 @@
  
  
  
+ 
 
 <a href =#80>80.一位漂亮的越南女孩经历的家庭意外变化</a><br>
 <a href =#80>80.大陆百姓祝愿李洪志大师中秋快乐</a><br>
@@ -133,7 +134,7 @@
 
  
  
- <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=81> 
+<div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=81> 
 <h2 align="center"><b>一位漂亮的越南女孩经历的家庭意外变化</b></h2>  
 <div align="center"><IMG SRC="wnn/img2/21-0923-2.jpg"width=550></div><div align="center"越南女孩邓晓（đảng hiểu）（DKN.tv） </div><p>
 
