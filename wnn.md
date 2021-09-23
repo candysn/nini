@@ -136,8 +136,8 @@
  
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=81> 
 <h2 align="center"><b>一位漂亮的越南女孩经历的家庭意外变化</b></h2>  
-<div align="center"><IMG SRC="wnn/img2/21-0923-2.jpg"width=550></div><div align="center"越南女孩邓晓（đảng hiểu）（DKN.tv） </div><p>
-
+<div align="center"><IMG SRC="wnn/img2/21-0923-2.jpg"width=550></div><div align="center>"越南女孩邓晓（đảng hiểu）（DKN.tv） </div><p>
+ 
 希望之声2021年9月22日】（本台记者慧光综合编译）<p>
 
 邓晓（đảng hiểu）是一位年轻漂亮的越南女孩，只有二十三岁，正是青春洋溢、风华正茂的年纪。她有追求、有梦想，有自己独立的见解，是一位非常独立的女子。她喜欢音乐，目前是一位教音乐的老师。因为家中经营酒店生意，经济上也算富足了，应该说是无忧无虑了，可实际上恰恰相反，她从小就没有体会过愉快的家庭生活，家庭带给她的只有忧伤和烦恼。那么她的烦恼是什么呢？
