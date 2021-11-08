@@ -220,7 +220,7 @@
 <a href=#top><h6 align="right">回上方</h6></a>  
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=106> 
-<h2 align="center"><b>一位新婚少妇的婚后感言</b></h2>  
+<h2 align="center"><b>为什么要退出共产党</b></h2>  
 <div align="center"><IMG SRC="wnn/img2/21-1108-1.jpg"width=550></div><div align="center">图：2021年7月16日，来自美东的部分法轮功学员在华盛顿纪念碑下悼念被中共迫害致死的法轮功修炼者。（李莎／大纪元）</div><p>    
  
 【大纪元2021年11月06日讯】为什么要退出共产党，因为它是要求党性第一，注重党性，需要的时候连人性都可以抛弃的，一个人连人性都没有的，那会是个什么样的邪恶组织？<p>
@@ -246,7 +246,7 @@
 <a href=#top><h6 align="right">回上方</h6></a>    
  
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=105> 
-<h2 align="center"><b>为什么要退出共产党</b></h2>  
+<h2 align="center"><b>一位新婚少妇的婚后感言</b></h2>  
 <div align="center"><IMG SRC="wnn/img2/21-1105-2.jpg"width=550></div><div align="center">越南新婚少妇雪雪（Tuyết Tuyết）与丈夫杜克（Đức）（照片本人提供）</div><p>   
  
 【希望之声2021年10月27日】（本台记者慧光综合编译）
@@ -294,7 +294,7 @@
 <a href=#top><h6 align="right">回上方</h6></a>   
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=104> 
-<h2 align="center"><b>女植物发展间隔2.5亿年　再次否定进化论</b></h2>  
+<h2 align="center"><b>植物发展间隔2.5亿年　再次否定进化论</b></h2>  
 <div align="center"><IMG SRC="wnn/img2/21-1105-1.jpg"width=550></div><div align="center">（图片取自网络）</div><p>    
  
 【明慧网二零二一年十月十三日】（明慧记者明兰报道）《科学》期刊（Science）二零二一年九月十七日发表论文指出，地球上植物的发展出现了两次跳跃，之间间隔长达2.5亿年。在这么长的时期内，植物并没有“进化”的动作。<p>  
