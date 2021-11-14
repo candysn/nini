@@ -207,7 +207,7 @@
  
  .........
 
-原文https://github.com/candysn/nini/edit/master/wnn.md
+原文https://www.epochtimes.com/gb/21/11/5/n13356568.htm
  
 <a href=#top><h6 align="right">回上方</h6></a> 
  
