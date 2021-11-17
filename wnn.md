@@ -168,7 +168,7 @@
 
 <div align="center"><IMG SRC="wnn/img/aa125.jpg" width=880></div><p><a name=112> 
 <h2 align="center"><b>亲见疫情祸害 原大陆企业家坚定三退反共</b></h2>  
-<div align="center"><IMG SRC="wnn/img2/21-1115-2.jpg"width=550></div><div align="center">亲见疫情祸害 原大陆企业家坚定三退反共</div><p>  
+<div align="center"><IMG SRC="wnn/img2/21-1119-1.jpg"width=550></div><div align="center">亲见疫情祸害 原大陆企业家坚定三退反共</div><p>  
  
 【新唐人北京时间2021年11月04日讯】原大陆湖北企业家易刘飞，因在社交媒体上发布当地疫情视频和发表自由言论，遭到了中共的威胁，来看一下他的故事。
 
