@@ -184,7 +184,7 @@
 
 有位法轮功学员一直陪着法官，走到他家单元门。法官还说，他接到了美国打来的（法轮功真相）电话。 
  
-原文https://www.minghui.org/mh/articles/2021/11/18/%E6%B3%95%E5%AE%98%E4%B8%8D%E6%84%BF%E6%8E%A5%E5%86%A4%E6%A1%88-%E8%A1%A8%E6%98%8E%E4%BC%9A%E2%80%9C%E6%9E%AA%E5%8F%A3%E6%8A%AC%E9%AB%98%E4%B8%80%E5%8E%98%E7%B1%B3%E2%80%9D-433685.html
+原文https://www.minghui.org/mh/articles/2021/11/18/%E6%B3%95%E5%AE%98%E4%B8%8D%E6%84%BF%E6%8E%A5%E5%86%A4%E6%A1%88%E8%A1%A8%E6%98%8E%E4%BC%9A%E2%80%9C%E6%9E%AA%E5%8F%A3%E6%8A%AC%E9%AB%98%E4%B8%80%E5%8E%98%E7%B1%B3%E2%80%9D-433685.html
  
 <a href=#top><h6 align="right">回上方</h6></a>  
  
